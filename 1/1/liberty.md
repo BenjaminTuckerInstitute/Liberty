@@ -96,7 +96,7 @@ It may be well to state at the ontset that this journal will be edited to suit i
 >
 > Till buried by death's wing!
 >
-> And great men praise the goodly czar -
+> And great men praise the goodly czar —
 >
 > But God site pitying.
 >
@@ -120,7 +120,7 @@ It may be well to state at the ontset that this journal will be edited to suit i
 >
 > For one long damning line of red;
 >
-> While exiles endless go -
+> While exiles endless go —
 >
 > The babe at breast, the mother's head
 >
@@ -147,7 +147,7 @@ It may be well to state at the ontset that this journal will be edited to suit i
 >
 > Your star at burst of dawn!
 >
-> A thud! a creak of hangman's lines -
+> A thud! a creak of hangman's lines —
 >
 > A frail shape jerked and drawn!
 >
@@ -156,7 +156,7 @@ It may be well to state at the ontset that this journal will be edited to suit i
 >
 > About her neck a cord.
 >
-> In God's house rests his royal head -
+> In God's house rests his royal head —
 >
 > Hers in a place abhorred;
 >
@@ -170,7 +170,7 @@ It may be well to state at the ontset that this journal will be edited to suit i
 >
 > To hide in dread, with both hands red,
 >
-> Behind great bolt and bar -
+> Behind great bolt and bar —
 >
 > While like the dead, still endless tread
 >
@@ -182,7 +182,7 @@ Joaquin Miller.
 
 Liberty enters the field of journalism to speak for herself because she finds no one willing to speak for her. She hears no voice that always champions her; she knows no pen that always writes in her defence; she sees no hand that is always lifted to avenge her wrongs or vindicate her rights. Many claim to speak in her name, but few really understand her. Still fewer have the courage and the opportunity to consistently fight for her. Her battle, then, is her own to wage and win. She accepts it fearlessly, and with a determined spirit.
 
-Her foe, Authority, takes many shapes, but, broadly speaking, her enemies divide themselves into three classes: first, those who abhor her both as a means and as an end of progress, opposing her openly, avowedly, sincerely, consistently, universally; sec- ond, those who profess to believe in her as a means of progress, but who accept her only so far as they think she will subserve their own selfish interests, denying her and her blessings to the rest of the world; third, those who distrust her as a means of progress, believing in her only as an end to be obtained by first trampling upon, violating, and, outraging her. These three phases of opposition to Liberty are met in almost every sphere of thought and human activity. Good representatives of the first are seen in the Catholic Church and the Russian autocracy; of the second, in the Protestant Church and the Manchester school of politics and political economy; of the third, in the atheism of Gambetta and the socialism of Karl Marx.
+Her foe, Authority, takes many shapes, but, broadly speaking, her enemies divide themselves into three classes: first, those who abhor her both as a means and as an end of progress, opposing her openly, avowedly, sincerely, consistently, universally; second, those who profess to believe in her as a means of progress, but who accept her only so far as they think she will subserve their own selfish interests, denying her and her blessings to the rest of the world; third, those who distrust her as a means of progress, believing in her only as an end to be obtained by first trampling upon, violating, and, outraging her. These three phases of opposition to Liberty are met in almost every sphere of thought and human activity. Good representatives of the first are seen in the Catholic Church and the Russian autocracy; of the second, in the Protestant Church and the Manchester school of politics and political economy; of the third, in the atheism of Gambetta and the socialism of Karl Marx.
 
 Through these forms of authority another line of demarcation runs transversely, separating the divine from the human; or, better still, the religious from the secular. Liberty's victory over the former is well-nigh achieved. Last century Voltaire brought the authority of the supernatural into disrepute. The Church has been declining ever sice. Her teeth are drawn, and though she seems still to show here and there vigorous signs of life, she does so in the violence of the death-agony upon her, and soon her power will be felt no more. It is human authority that hereafter is to lie dreaded, and the State, its organ, that in the future is to be feared. Those who have lost their faith in gods only to put it in governments; those who have ceased to be Church-worshippers only to become State-worshippers; those who have abandoned pope for king or czar, and priest for president or parliament,—have indeed changed their battle-ground, but none the less are foes of Liberty still. The Church has become an object of derision; the State must be made equally so. The State is said by some to be a "necessary evil;" it must be made unnecessary. This century's battle, then, is with the State: the State, that debases man; the State, that prostitutes woman; the State, that corrupts children; the State, that trammels love; the State, that stifles thought; the State, that monopolizes land; the Stale, that limits credit; the Stats, that restricts exchange; the State, that gives idle capital the power of increase, and, through interest, rent, profit, and taxes, robs industrious labor of its products.
 
