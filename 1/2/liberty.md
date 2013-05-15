@@ -261,12 +261,12 @@ Reports of a similar tenor were submitted from Italy, Belgium, and other countri
 
 ## Crumbs from Liberty's Table.
 
-Of all the cants that, are canted in this canting world, though the cant of piety may be the worst, the cant of Americans bewailing Russian Nihilism is the most disgusting.—*Wendell Phillips.*
+Of all the cants that, are canted in this canting world, though the cant of piety may be the worst, the cant of Americans bewailing Russian Nihilism is the most disgusting. — *Wendell Phillips.*
 
-You cannot get rid of the regicide by killing him. If the feeling against kings and presidents is strong enough, the individual murderer, actual or potential, will no sooner have been disposed of than a qualified successor will step into his place.—*London World.*
+You cannot get rid of the regicide by killing him. If the feeling against kings and presidents is strong enough, the individual murderer, actual or potential, will no sooner have been disposed of than a qualified successor will step into his place. — *London World.*
 
 A minor French dramatist who had aided Scribe in many of the latter's unsuccessful plays, passing by the residence of his wealthy colleague, said to a friend who accompanied him: "There stands a house to which I contributed many a stone." "Yes, through the windows," replied Scribe, who happened to be entering at the time.
 
-David O. Jones, a street preacher, was arrested in New York on a recent Sunday for exercising too much lung force in trying to save souls. Jones asked the police judge, who was about to fine him five dollars, what he proposed to do if three or four souls were lost through his wickedness in suppressing him. This conundrum was too much for a New York judge, and he let Jonen go.—*Providence Telegram.*
+David O. Jones, a street preacher, was arrested in New York on a recent Sunday for exercising too much lung force in trying to save souls. Jones asked the police judge, who was about to fine him five dollars, what he proposed to do if three or four souls were lost through his wickedness in suppressing him. This conundrum was too much for a New York judge, and he let Jonen go. — *Providence Telegram.*
 
-The need of our day seems to me to be an increase of the number of citizens who neither obey nor defy public sentiment, but illustrate a polarity in righteousness; like the mariner's needle—in tumult, darkness, and storm obeying its own mystic law, and by its silent fidelity to its pole enabling every observer to take knowledge of it, and by comparison name the winds and currents accurately.—*Thomas K. Beecher*
+The need of our day seems to me to be an increase of the number of citizens who neither obey nor defy public sentiment, but illustrate a polarity in righteousness; like the mariner's needle—in tumult, darkness, and storm obeying its own mystic law, and by its silent fidelity to its pole enabling every observer to take knowledge of it, and by comparison name the winds and currents accurately. — *Thomas K. Beecher*
