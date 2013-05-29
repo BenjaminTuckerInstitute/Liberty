@@ -122,7 +122,7 @@ We will meet you with the flag of "Freedom," and we will write the word with a r
 
 *Au revoir.*
 
-W. G. H. Smart.
+W\. G\. H\. Smart.
 
 Mattapan, Mass., Aug. 9, 1881.
 
