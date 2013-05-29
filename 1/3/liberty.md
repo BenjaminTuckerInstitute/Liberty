@@ -120,7 +120,7 @@ But I must stop. You have hoisted the banner of Egoistic Liberty. You spell the 
 
 We will meet you with the flag of "Freedom," and we will write the word with a running hand. It will be Social Freedom — Society.
 
-*Au revoir*.
+*Au revoir.*
 
 W. G. H. Smart.
 
