@@ -176,14 +176,14 @@ EDITOR LIBERTY: — Thanks for the copy of your most excellent first number. Cou
 
 With these premises we may assert that the *necessity* that compels parents to send their children to shops, stores, factories, etc., should be removed. If parents are to be *compelled* to send children to school, the community owes the parents two things: first, that the school be *fit* to send children to; second, that the father, by industry and thrift, be *enabled* to allow his children to go to school. Love of esteem; ambition; pride; the influence of good example; the advantages to be derived from education, — these and other influences combine to induce parents to send children to school without the aid of compulsory measures. In fact, the true business of the American legislature is to go behind the returns, and see to it that the conditions are such as to lead the people to accept *voluntarily* the benefits and advantages of common-school education. The question of compulsory education will be solved by the solution of deeper and broader questions behind it, present reference to which would intrench too far on our time and your space.
 
-EL-D/. L/.
+EL-D\. L\.
 Philadelphia, August, 1881.
 
 ## Game for the Fool-Killer.
 
 Though man, pricked by a stupid arrogance, strives often to break the reins of government, he never escapes having to obey someone! Very necessity compels, in every association of men, and in ever community, that some shall be at the head. Without a head, or chief, by which it may be governed, any society, defrauded of the aim for which it was framed and formed, goes to pieces, and can never avail. — *Pope Leo XIII.*
 
-The "Somebody" of the present hour is always a thrifty, lively, industrious, temperate, far-seeing individual, that is always looking for the main chance, and always ready and eager to seize and improve it when he finds it. It matters not whether he is a merchant, a mechanic, a professional character, or a corporation, he is invariably found the possessor of the same intellectual elements and capabilities. That 'Somebody" is a great financial, social, or political tyrant is utter nonsense. The door is open to every American citizen to be a "somebody" instead of a nobody. He has his choice and ought not to complain. — *V\.W\.B\., in New York Truth.*
+The "Somebody" of the present hour is always a thrifty, lively, industrious, temperate, far-seeing individual, that is always looking for the main chance, and always ready and eager to seize and improve it when he finds it. It matters not whether he is a merchant, a mechanic, a professional character, or a corporation, he is invariably found the possessor of the same intellectual elements and capabilities. That 'Somebody" is a great financial, social, or political tyrant is utter nonsense. The door is open to every American citizen to be a "somebody" instead of a nobody. He has his choice and ought not to complain. — *V\. W\. B\., in New York Truth.*
 
 ## TO WALT WHITMAN.
 
