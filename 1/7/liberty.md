@@ -136,6 +136,7 @@ has a keen sense of the ridiculous, an extraordinary faculty for happily turning
 >
 > With eye of faith, their Hell forever burning.
 
+
 > It would be joy to Jacob could he look
 >
 > And see his brother Esan writhe in Hell,
@@ -151,6 +152,7 @@ has a keen sense of the ridiculous, an extraordinary faculty for happily turning
 > In battle by his act, show her Uriah,
 >
 > Who feels that God is a consuming fire.
+
 
 > In this we have the advantage. Jon'than E.,
 >
@@ -168,6 +170,7 @@ has a keen sense of the ridiculous, an extraordinary faculty for happily turning
 >
 > Harps louder on his harp to the blest trinity.
 
+
 > And J. Iscariot Cook, who once applied
 >
 > The microscope to Mary, and explained
@@ -183,6 +186,7 @@ has a keen sense of the ridiculous, an extraordinary faculty for happily turning
 > Or was deceived, when she broke forth in song,
 >
 > Exultant that her offspring was the long
+
 
 > Foretold Messiah, through whose marvellous birth
 >
@@ -216,6 +220,7 @@ has a keen sense of the ridiculous, an extraordinary faculty for happily turning
 >
 > Subsistences, not persons, were the trinity,
 
+
 > Which was a substance. Now, I cannot see
 >
 > How a subsistence, which itself was nought
@@ -231,6 +236,7 @@ has a keen sense of the ridiculous, an extraordinary faculty for happily turning
 > And walked about, and ate and drank and died;
 >
 > Died like a man; nay, like a thief, was crucified.
+
 
 > Still he is confident, this Joseph C.,
 >
@@ -248,6 +254,7 @@ has a keen sense of the ridiculous, an extraordinary faculty for happily turning
 >
 > And Joe will see him damned first, as he oughter.
 
+
 > Provided always Joe can find some screen
 >
 > To hang between his past and God Almighty,
@@ -264,6 +271,7 @@ has a keen sense of the ridiculous, an extraordinary faculty for happily turning
 >
 > "Declared" he must have been damned fast, this Joe, sir.
 
+
 > Proviso 2, that Joseph ia sustained
 >
 > In his queer notions of the trinity,
@@ -279,6 +287,7 @@ has a keen sense of the ridiculous, an extraordinary faculty for happily turning
 > Resents the insult that the heir to the throne
 >
 > Is not one whit superior to a drone.
+
 
 > But Joseph's dumb; that is, upon this theme.
 >
@@ -308,6 +317,7 @@ has a keen sense of the ridiculous, an extraordinary faculty for happily turning
 >
 > It knocked heir taxing lust.
 
+
 > Their power to roar oppression
 >
 > On Columbia's free soil
@@ -315,6 +325,7 @@ has a keen sense of the ridiculous, an extraordinary faculty for happily turning
 > The fathers put a stop to,
 >
 > Their little game did spoil.
+
 
 > "Cornwallis, bring thy sword in
 >
@@ -334,6 +345,7 @@ has a keen sense of the ridiculous, an extraordinary faculty for happily turning
 >
 > No Saxon virtue lack;
 
+
 > So, like the dear old mother
 >
 > We trashed in olden time,
@@ -341,6 +353,7 @@ has a keen sense of the ridiculous, an extraordinary faculty for happily turning
 > While she is threshing Ireland,—
 >
 > Oh! impudence sublime! —
+
 
 > We gather up our garments,
 >
@@ -360,6 +373,7 @@ has a keen sense of the ridiculous, an extraordinary faculty for happily turning
 >
 > Love messages doth toss.
 
+
 > A widower our chieftain,
 >
 > Victoria's widowed long,—
@@ -367,6 +381,7 @@ has a keen sense of the ridiculous, an extraordinary faculty for happily turning
 > Why not combine the household,
 >
 > And make one people strong?
+
 
 > Oh! what a glorious Union!
 >
