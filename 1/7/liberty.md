@@ -72,35 +72,35 @@ The same is true of all the other prerogatives which attach to property. Whether
 
 We ask the reader to scrutinize carefully the law which we have italicized above, and then bear in mind the following melancholy facts which result from ignoring it, or not knowing it:—
 
-1. Usury is practically wrong because the State creates and defends a monopoly in the practice of it.
+1\. Usury is practically wrong because the State creates and defends a monopoly in the practice of it.
 
-2. Property in land is practically wrong because the State was created to defend a minority in the sole enjoyment of it.
+2\. Property in land is practically wrong because the State was created to defend a minority in the sole enjoyment of it.
 
-3. Rent and interest (forms of usury) are practically wrong because the State necessarily confines the taking of rent and interest to the classes endowed with monopoly.
+3\. Rent and interest (forms of usury) are practically wrong because the State necessarily confines the taking of rent and interest to the classes endowed with monopoly.
 
 Finally, the whole range of transactions among individuals results in wrongs because the State assumes the right to stand despotically between individuals and their own mutual interests. *The State is the chief curse of humanity, the mother of human wrongs.*
 
 ## Distressing Problems.
 
-1. Is it worth while for fifty millions of people to prove themselves a nation of fools by hanging a fool for a homicide?
+1\. Is it worth while for fifty millions of people to prove themselves a nation of fools by hanging a fool for a homicide?
 
-2. Could any one more effectually prove himself a fool than by committing a homicide in the expectation that the government would reward him for it by giving him an office?
+2\. Could any one more effectually prove himself a fool than by committing a homicide in the expectation that the government would reward him for it by giving him an office?
 
-3. How much mental capacity, how much power to judge of the moral character and probable results of an act, is it necessary that a man should have to save him from the charge of being a fool, and convict him of being a felon?
+3\. How much mental capacity, how much power to judge of the moral character and probable results of an act, is it necessary that a man should have to save him from the charge of being a fool, and convict him of being a felon?
 
-4. If a man who, having no malice to gratify and no prospect of gain, commits a homicide upon a peaceable citizen in open day and in the immediate presence of a hundred spectators has any other expectation than that his fate will be to end his days either on the gallows or in a lunatic asylum, can he be said to have sufficient power of judging of the nature and probable results of his act to save him from the charge of being a fool, and convict him of being a felon?
+4\. If a man who, having no malice to gratify and no prospect of gain, commits a homicide upon a peaceable citizen in open day and in the immediate presence of a hundred spectators has any other expectation than that his fate will be to end his days either on the gallows or in a lunatic asylum, can he be said to have sufficient power of judging of the nature and probable results of his act to save him from the charge of being a fool, and convict him of being a felon?
 
-5. If a man who commits such a homicide under such circumstances is not to be considered a fool instead of a felon, what difference is there between him and a man who lays in wait for another, and kills him in cold blood for money?
+5\. If a man who commits such a homicide under such circumstances is not to be considered a fool instead of a felon, what difference is there between him and a man who lays in wait for another, and kills him in cold blood for money?
 
-6. If Guiteau should be hanged, will he be hanged because he is a fool? or because he is a political fool? or because, being a fool and a political fool, he committed a homicide?
+6\. If Guiteau should be hanged, will he be hanged because he is a fool? or because he is a political fool? or because, being a fool and a political fool, he committed a homicide?
 
-7. If all the political fools in the country are to be hanged, or otherwise punished, for acts that are criminal when committed by men of sound minds,— such acts, for example, as advocating and voting for unjust and oppressive laws,— what percentage of the population are to go unpunished? And what is to become of our political parties, and of "our glorious republican institutions"?
+7\. If all the political fools in the country are to be hanged, or otherwise punished, for acts that are criminal when committed by men of sound minds,— such acts, for example, as advocating and voting for unjust and oppressive laws,— what percentage of the population are to go unpunished? And what is to become of our political parties, and of "our glorious republican institutions"?
 
-8. If we have gained, in this country, no immunity for political fools, or if our government cannot survive the attacks of political fools of all possible grades, does not common sense decree that the sooner the fools put an end to it, the better?
+8\. If we have gained, in this country, no immunity for political fools, or if our government cannot survive the attacks of political fools of all possible grades, does not common sense decree that the sooner the fools put an end to it, the better?
 
-9. Our government, like most other governments, is carried on mainly by two classes of men, knaves and dupes. It would scarcely be an exaggeration to call them felons and fools. If we must hang either of these classes, is it not cruel and indecent to begin with the fools?
+9\. Our government, like most other governments, is carried on mainly by two classes of men, knaves and dupes. It would scarcely be an exaggeration to call them felons and fools. If we must hang either of these classes, is it not cruel and indecent to begin with the fools?
 
-10. We have two political parties in this country, and the two are of nearly equal numbers. They are tolerated, and even encouraged, because it is agreed, on both sides, that they are a necessity, in order that they may tell the truth of each other. And they do tell a great deal of truth, although by no means the whole truth of each other. And they are permitted to tell it in the presence of all the fools in the country. Is it to be expected that so much truth can be openly told without causing homicide? A few years ago we had a million of homicides, growing out of the wickedness of the government and the foolishness of the people; yet the government, unless in a single particular, was no worse then than it is now, and the people were perhaps no more foolish then than they are now. Do not these facts teach us that we should either change our government, or keep the truth out of the hands of the people? Can it be expected that a government as bad as ours, and a people as foolish as ours, can get on together without an occasional explosion?
+10\. We have two political parties in this country, and the two are of nearly equal numbers. They are tolerated, and even encouraged, because it is agreed, on both sides, that they are a necessity, in order that they may tell the truth of each other. And they do tell a great deal of truth, although by no means the whole truth of each other. And they are permitted to tell it in the presence of all the fools in the country. Is it to be expected that so much truth can be openly told without causing homicide? A few years ago we had a million of homicides, growing out of the wickedness of the government and the foolishness of the people; yet the government, unless in a single particular, was no worse then than it is now, and the people were perhaps no more foolish then than they are now. Do not these facts teach us that we should either change our government, or keep the truth out of the hands of the people? Can it be expected that a government as bad as ours, and a people as foolish as ours, can get on together without an occasional explosion?
 
 ## "Cool" Journalism.
 
@@ -121,102 +121,179 @@ Many attempts have been made by persons utterly unfitted for the task to paraphr
 has a keen sense of the ridiculous, an extraordinary faculty for happily turning a phrase, und avast fund of information on all subjects connected with Biblical studies. More than this, he is a fearless thinker and outspoken writer. The work lacks method, and is marked at many points by crudities due to carelessness, both of author and printer. But it deals most effectively a rapid succession of keen thrusts and heavy blows at the Christian superstition, and deserves to be widely read. The treatment of the dogma of hell, introducing Joseph Cook I and his ingenious theory of Christ's birth, fairly samples the faults and excellences of the work: therefore we append it.
 
 > I said that Hell had not then been invented.
+>
 > We have the advantage over Bible times.
+>
 > They burned or hacked the body, well contented
+>
 > When death ensued; but when we've mocked the limbs
+>
 > Or burned and buried those who have dissented,
+>
 > Or won't conform to our rehglouj whims,
+>
 > We have the satisfaction of discerning,
+>
 > With eye of faith, their Hell forever burning.
 
 > It would be joy to Jacob could he look
+>
 > And see his brother Esan writhe in Hell,
+>
 > Or Elisha see the boys the bruins shook
+>
 > As a dog shakes a rat, all roasting well;
+>
 > Or David, paired with Mrs. U., who took
+>
 > A bath one evening, seeing him who fell
+>
 > In battle by his act, show her Uriah,
+>
 > Who feels that God is a consuming fire.
 
 > In this we have the advantage. Jon'than E.,
+>
 > Who wrote the famous treatise on the Will,
+>
 > Can look from Heaven's battlements and see
+>
 > A delicate cinder that, on earth, was El,
+>
 > Or Eliery Channing. who maintained that three
+>
 > Were three times one, not one, and now, in Hell
+>
 > Gets his deserts. And gentle Jon'than E.
+>
 > Harps louder on his harp to the blest trinity.
 
 > And J. Iscariot Cook, who once applied
+>
 > The microscope to Mary, and explained
+>
 > The mystery of the birth of him who died
+>
 > On Calvary; that she was not impregned
+>
 > By power the highest; and Old Gabriel lied
+>
 > Or was mistaken; and that Mary feigned,
+>
 > Or was deceived, when she broke forth in song,
+>
 > Exultant that her offspring was the long
 
 > Foretold Messiah, through whose marvellous birth
+>
 > All nations and all peoples should be blest,
+>
 > And she should be proclaimed throughout the earth,
+>
 > Happy above all mothers. Cook exprest,
+>
 > Without the slightest tendency to mirth
+>
 > Among his hearers, who all seemed imprest
+>
 > With its importance, his belief that Jes-
+>
 > Jesus was born as drones among the bees.
 
 > 'Twas partheno genesis and nothing more.
+>
 > So said the latest science. Then he quoted
+>
 > Jaw-breaking German gutturals; — a score
+>
 > Of men to physiology devoted;
+>
 > And said the person we'd been taught t'adore,
+>
 > As the original Grecian word denoted,
+>
 > Was a subsistence, not a person: three
+>
 > Subsistences, not persons, were the trinity,
 
 > Which was a substance. Now, I cannot see
+>
 > How a subsistence, which itself was nought
+>
 > And could do nought, when multiplied by three,
+>
 > Became the infinite God, transcending thought;
+>
 > How three noughts added made infinity;
+>
 > How this subsistence lived on earth and taught,
+>
 > And walked about, and ate and drank and died;
+>
 > Died like a man; nay, like a thief, was crucified.
 
 > Still he is confident, this Joseph C.,
+>
 > That in some future state, some post-existence,
+>
 > Translated into heaven, he will see,
+>
 > While sitting, cheek by jowl, with th' second subsistence,
+>
 > The Devil, aided by a score of assistants,
+>
 > Heaping the coals around poor Theodore P.,
+>
 > While P., like Lazarus' friend, begs Joe for water,
+>
 > And Joe will see him damned first, as he oughter.
 
 > Provided always Joe can find some screen
+>
 > To hang between his past and God Almighty,
+>
 > So that the damning record can't be seen.
+>
 > The black and hideous record sua vita,
+>
 > He hinted at, when lecturing yestreen,
+>
 > In the "Old South," when Standing Bear and Bright-eye
+>
 > And ghosts, as thick as leaves in Vallambrosa,
+>
 > "Declared" he must have been damned fast, this Joe, sir.
 
 > Proviso 2, that Joseph ia sustained
+>
 > In his queer notions of the trinity,
+>
 > By his Triune: for Joseph would be pained
+>
 > Should it turn out that the Divinity
+>
 > Is not a triplet; and that he impregned
+>
 > Miss M., and, proud of his paternity,
+>
 > Resents the insult that the heir to the throne
+>
 > Is not one whit superior to a drone.
 
 > But Joseph's dumb; that is, upon this theme.
+>
 > He's dropped the subject, never mentions it.
+>
 > He knocked the key-stone out from the grand scheme;
+>
 > The brethren were disgusted with it, quite.
+>
 > The clergy thought him, upon this point, lame.
+>
 > 'T would bring upon the sect a perfect blight.
+>
 > Jesus no father? God no son? What next?
+>
 > Then all religion was but a pretext.
 
 ## A Proposal.
@@ -224,52 +301,79 @@ has a keen sense of the ridiculous, an extraordinary faculty for happily turning
 ### I.
 
 > The Britons were at Yorktown
+>
 > Low humbled in the dust.
+>
 > It was their hardest knock-down;
+>
 > It knocked heir taxing lust.
 
 > Their power to roar oppression
+>
 > On Columbia's free soil
+>
 > The fathers put a stop to,
+>
 > Their little game did spoil.
 
 > "Cornwallis, bring thy sword in
+>
 > To Washington, the true!
+>
 > Salute the Rebel's banner,
+>
 > The red, white, and blue!"
 
 ### II.
 
 > The Britishers still flourish
+>
 > And flaunt their "Union Jack,"
+>
 > While we, their natural offspring,
+>
 > No Saxon virtue lack;
 
 > So, like the dear old mother
+>
 > We trashed in olden time,
+>
 > While she is threshing Ireland,—
+>
 > Oh! impudence sublime! —
 
 > We gather up our garments,
+>
 > Swear force is no more "brute,"
+>
 > And at consecrated Yorktown
+>
 > Her sullied flag salute.
 
 ### III.
 
 > The "gracious Queen" doth send us
+>
 > Condolence for our loss;
+>
 > Our Arthur o'er the ocean
+>
 > Love messages doth toss.
 
 > A widower our chieftain,
+>
 > Victoria's widowed long,—
+>
 > Why not combine the household,
+>
 > And make one people strong?
 
 > Oh! what a glorious Union!
+>
 > Pure Saxon blood would flow,
+>
 > And round the world together
+>
 > A-conquering we'd go!
 
 ## Order and Anarchy.
