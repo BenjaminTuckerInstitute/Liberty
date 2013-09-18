@@ -154,6 +154,7 @@ There is no better definition of anarchy than Proudhon's: "The dissolution of go
 >
 > And what is the promise hereafter?
 
+
 > Come away! Come away!
 >
 > Come to the halls of peace!
@@ -161,6 +162,7 @@ There is no better definition of anarchy than Proudhon's: "The dissolution of go
 > In patience there seek the eternal;
 >
 > They ways, be they fair and fraternal;
+
 
 > Truth wins, but doth no sceptre hold:
 >
