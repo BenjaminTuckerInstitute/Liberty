@@ -1,6 +1,6 @@
 ## On Picket Duty.
 
-George Chainey’s "Infidel Pulpit now comes to us under the title, "This World." It presents a very handsome appearance, and we are glad to hear that it is achieving an abundant success.
+George Chainey’s "Infidel Pulpit" now comes to us under the title, "This World." It presents a very handsome appearance, and we are glad to hear that it is achieving an abundant success.
 
 William W. Crapo, who represents the first congressional district of Massachusetts in the national house of representatives, is soon to report, in his capacity of chairman of the committee on banking and currency, a bill draughted by himself extending the national banking system for another twenty years. Mr. Crapo is popular among his neighbors, and enjoys the reputation of being an honest man. He may mean well now, but by this action he will constitute himself the champion of the most gigantic swindle ever perpetrated upon tin American people. He is said to have his eye upon the governorship of Massachusetts, and the Crapo "boom" set in some time ago. He is evidently shrewd enough to see that capital makes our governors, and is bidding high. It usually makes no difference to us who is governor, but if Mr. Crappo runs for the office, we confess that we should enjoy seeing Uncle Benjamin Butler beat him right out of his boots.
 
