@@ -1,3 +1,9 @@
+> "For always in thine eyes, O Liberty!
+>
+> Shines that high light whereby the world is saved;
+>
+> And though thou slay us, we will trust in thee,"
+
 ## On Picket Duty.
 
 George Chainey’s "Infidel Pulpit" now comes to us under the title, "This World." It presents a very handsome appearance, and we are glad to hear that it is achieving an abundant success.
@@ -53,6 +59,8 @@ Vera Sassulitch,
 Pierre Lavroff,
 
 December 27, 1881.
+
+> "A free man is one who enjoys the use of his reason and his faculties; who is neither blinded by passion, not hindered or driven by oppression, not deceived by erroneous opinions." — Proudhon.
 
 ## A Precious Pair of Pious Politicians.
 
