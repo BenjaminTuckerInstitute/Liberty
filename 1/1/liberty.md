@@ -192,7 +192,7 @@ How the State does these things, and how it can be prevented from doing them, Li
 
 The wise 'Boston Herald" thinks that Mr. Robert Ingersoll has little to offer in place of the Christian consolation which he assails, and that all sensible people have long ago abandoned the preposterous doctrines he is still laughing at. Thus we have two counts against the great infidel orator. Consider each of them.
 
-\1. "Nothing to offer."
+1\. "Nothing to offer."
 
 He walks through the heavens and finds no "ghosts." He isn't afraid, and tells other people not to be.
 
@@ -230,7 +230,7 @@ One other occurs to us: —
 
 *God is good sense; if you have it, use it; if you have it not, strive for it.*
 
-\2. "Ingersoll is fighting old beliefs almost universally abandoned."
+2\. "Ingersoll is fighting old beliefs almost universally abandoned."
 
 Is he?
 
