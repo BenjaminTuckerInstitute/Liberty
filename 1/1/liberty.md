@@ -1,3 +1,11 @@
+> "For always in thine eyes, O Liberty!
+> 
+> Shines that high light whereby the world is saved;
+> 
+> And though thou slay us, we will trust in thee."
+
+John Hay.
+
 ## On Picket Duty.
 
 Liberty, Equality, Fraternity, these three; but the greatest of these is Liberty.
@@ -178,6 +186,8 @@ It may be well to state at the outset that this journal will be edited to suit i
 
 Joaquin Miller.
 
+> "A free man is one who enjoys the use of his reason and his faculties; who is neither blinded by passion, nor hindered or driven by oppression, nor deceived by erroneous opinions." — Proudhon.
+
 ## Our Purpose.
 
 Liberty enters the field of journalism to speak for herself because she finds no one willing to speak for her. She hears no voice that always champions her; she knows no pen that always writes in her defence; she sees no hand that is always lifted to avenge her wrongs or vindicate her rights. Many claim to speak in her name, but few really understand her. Still fewer have the courage and the opportunity to consistently fight for her. Her battle, then, is her own to wage and win. She accepts it fearlessly, and with a determined spirit.
@@ -190,7 +200,7 @@ How the State does these things, and how it can be prevented from doing them, Li
 
 ## No Substitutes for the Ghosts.
 
-The wise 'Boston Herald" thinks that Mr. Robert Ingersoll has little to offer in place of the Christian consolation which he assails, and that all sensible people have long ago abandoned the preposterous doctrines he is still laughing at. Thus we have two counts against the great infidel orator. Consider each of them.
+The wise "Boston Herald" thinks that Mr. Robert Ingersoll has little to offer in place of the Christian consolation which he assails, and that all sensible people have long ago abandoned the preposterous doctrines he is still laughing at. Thus we have two counts against the great infidel orator. Consider each of them.
 
 1\. "Nothing to offer."
 
