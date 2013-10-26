@@ -30,9 +30,7 @@ The newspapers tell us that the American delegate to the Universal Socialistic C
 
 The Detroit "National" Greenback organ, which wishes the government to run the railroads, manage the telegraph, and transact pretty much all business of life, says that "certainly no private company could conduct the postal service so cheaply and satisfactorily as is now done." Evidently the editor has never seen the report of the special commissioner detailed by the department to examine the postal service of the Pacific coast. There he would find the statement that Wells, Fargo & Co. supply the inhabitants of that locality with mail facilities superior to government's in promptness, security, and universality, and at rates that would be lower than the government's except for the enormous tax (just equal to the government's rates) imposed upon the business. He would find, too, the further statement that, even with so tremendous an advantage as this tax gives it, the government cannot successfully compete with this private firm. And yet it is to this branch of the government's work that the believers in State administration point with pride. We should like few things better than to see some competent business man go thoroughly into the subject, and point out the outrages, absurdities, and inconveniences of the management of the postal service. In the whole list of monopolies there is no greater sham.
 
-> "A free man is one who enjoys the use of his reason and his faculties; who is neither blinded by passion, nor hindered or driven by oppression, nor deceived by erroneous opinions" —
-
-Proudhon.
+> "A free man is one who enjoys the use of his reason and his faculties; who is neither blinded by passion, nor hindered or driven by oppression, nor deceived by erroneous opinions" — Proudhon.
 
 ## Free Religion: Then, and Now.
 
