@@ -4,6 +4,8 @@
 >
 > And though thou slay us, we will trust in thee."
 
+John Hay.
+
 ## On Picket Duty.
 
 George Chainey’s "Infidel Pulpit" now comes to us under the title, "This World." It presents a very handsome appearance, and we are glad to hear that it is achieving an abundant success.
