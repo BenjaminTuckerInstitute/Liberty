@@ -36,9 +36,7 @@ Liberty is sent regularly to the Boston Public Library that it may be placed on 
 
 The London "Truth" thinks that "the best use to which a woman can be put is to be made the honest wife of a good man, and the judicious mother of healthy children." It is high time that Editor Labouchere, who claims to be a radical, found out that woman is not here to "be put" to any use whatever. Like man, she has her capacities and her preferences, and, like him, she also has the right to *put herself* to the uses most in accordance with them. Propagation is an important function in which man and woman are factors equally necessary, but one whose usefulness is entirely incident and subordinate to the rest of life. Its vaine depends wholly on upon its power to produce human beings good for something more than the mere perpetuation of the race. The man who should be told that the best use to which he could be put would be to be made the honest husband of some good woman, and the judicious father of healthy children, would consider himself insulted, and with reason. Why should not woman, too, feel the insult of being degraded in others' estimation to the level of a mere sexual animal, with no brain to speak of above her cerebellum?
 
-> "A free man is one who enjoys the use of his reason and his faculties; who is neither blinded by passion, nor hindered or driven by oppression, nor deceived by erroneous opinions" —
-
-Proudhon.
+> "A free man is one who enjoys the use of his reason and his faculties; who is neither blinded by passion, nor hindered or driven by oppression, nor deceived by erroneous opinions" — Proudhon.
 
 ## Doctrine of Assent.
 
