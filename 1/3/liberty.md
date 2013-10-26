@@ -2,7 +2,7 @@
 > 
 > Shines that high light whereby the world is saved;
 > 
-> And though thou slay us, we will trust in thee"
+> And though thou slay us, we will trust in thee."
 
 John Hay.
 
@@ -34,9 +34,7 @@ Our memory recalls no "give-away" so delightfully innocent as that of the Cathol
 
 Europe is becoming thickly dotted with Anarchistic newspapers. Besides the appearance of the clandestine sheet, "Der Kampf," referred to by our foreign correspondent in another column, an announcement is made of a new Italian journal, "L'Insurrezione," to be published weekly in London by the well-known Italian revolutionist, Enrico Malatesta, Carlo Cafiero, and Vito Solieri. While holding communism in anarchy as the social ideal and the free action of the natural laws of man and society as the scientific method of its attainment, it looks upon the State as the supreme obstacle in the way of the application of this method, and therefore regards Insurrection (its name) as the first of duties. It will undoubtedly render valuable aid to the revolutionary cause, and every one who reads Italian should forward $1.60, plus foreign postage, for a year's subscription, to Vito Solieri, 8 Windmill Street, Tottenham Court Road, London, W, England.
 
-> "A free man is one who enjoys the use of his reason and his faculties; who is neither blinded by passion, nor hindered or driven by oppression, nor deceived by erroneous opinions" —
-
-Proudhon.
+> "A free man is one who enjoys the use of his reason and his faculties; who is neither blinded by passion, nor hindered or driven by oppression, nor deceived by erroneous opinions." — Proudhon.
 
 ## Land and Liberty
 
