@@ -2,7 +2,7 @@
 > 
 > Shines that high light whereby the world is saved;
 > 
-> And though thou slay us, we will trust in thee"
+> And though thou slay us, we will trust in thee."
 
 John Hay.
 
@@ -34,9 +34,7 @@ We see no further call for denominational activity or sectarian propagandists. A
 
 The Social Democrats of Europe are having a hard time of it. Forbidden to hold their proposed congress In Zurich, they have carried the question up from one authority to another only to be snubbed more ignominiously after each new appeal. They have even begged and attempted a compromise. They have agreed to ventilate no revolutionary ideas, to be more moderate in their demands than they were ten years ago, and to do nothing whatever to disturb the peace of Switzerland. But all to no purpose. To their touching appeal the federal tribunal turned a deaf ear. Liberty is always sorry to see free speech denied, no matter where or to whom, but it must be confessed that this outrage has its amusing aspect. We view with considerable satisfaction the wry faces made by these lovers of the State at having to swallow so bitter a dose of their own medicine. You wish the State, gentlemen. Well, you've got it,— a plenty of it. Tell us when you've had enough. Room can always be made for fresh recruits in the ranks of the army of Liberty.
 
-> "A free man is one who enjoys the use of his reason and his faculties; who is neither blinded by passion, nor hindered or driven by oppression, nor deceived by erroneous opinions" —
-
-Proudhon.
+> "A free man is one who enjoys the use of his reason and his faculties; who is neither blinded by passion, nor hindered or driven by oppression, nor deceived by erroneous opinions." — Proudhon.
 
 ## Vive I'Association Internationale!
 
