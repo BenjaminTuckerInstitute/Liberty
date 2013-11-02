@@ -120,7 +120,7 @@ The society should not appeal to charity, or to philanthropy, or to the justice 
 
 ## Timely Truth Tersely Told.
 
-[From the New York "Sun."]
+### [From the New York "Sun."]
 
 A correspondent in Brooklyn writes in praise of the notion of putting the railroads of the country under a national system, "the control and management of which shall be in the hands of agents of the whole people."
 
