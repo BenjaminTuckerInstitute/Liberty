@@ -1,9 +1,6 @@
->
 > "For always in thine eyes, O Liberty!
 >
->
 > Shines that high light whereby the world is saved;
->
 >
 > And though thou slay us, we will trust in thee."
 
