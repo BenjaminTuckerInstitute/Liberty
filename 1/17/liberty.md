@@ -1,0 +1,1034 @@
+
+## On Picket Duty.
+
+We are now prepared to furnish the portrait of
+Michael Bakounine (published in Liberty several
+weeks ago) separately and on large, heavy paper.
+It ought to adorn the library walls of every true radical.
+ Consult our advertising column for further information.
+
+The Philadelphia “Press” refers to the British
+house of commons as a “band of chuckle-headed
+dullards.” So exact an appreciation of the tools of
+the governing classes is worthy of Liberty, who
+hastens to acknowledge her encouragement at hearing
+ her opinions echoed by her influential contemporaries.
+
+On another page will be found along extract from
+a newly published pamphlet on “Natural Law,”
+written by that veteran but ever young reformer and
+philosopher, Lysander Spooner. The whole pamphlet
+is a powerful and closely argued statement of the
+philosophy of Liberty, showing the unrighteousness of
+the government of man by man. It is, however, but
+an, introduction to a large volume intended to be
+exhaustive of the subject. Nevertheless it is an
+integral, and not a fragmentary portion of the work,
+and maybe read with satisfaction and profit by all.
+Liberty trusts that each of her readers and friends
+will pay immediate heed to the advertisement in
+another column, and order a copy forthwith.
+
+Elsewhere may be found resolutions adopted by
+active and earnest coworkers in Jersey City in support
+ of the act of George Hendrix in defacing the
+monument erected by Cyrus W. Field in honor of
+Major Andre. Against these resolutions Liberty
+feels bound to protest. We fully agree that Mr.
+Cyrus W. Field is a thoroughly contemptible being,
+whose souls, if he has one, will shrivel in hell, if there
+is one. But, as long as he shall remain on earth, he
+will have rights, the same rights that every other
+man has, and in his exercise thereof Liberty will
+ever defend him even against her own friends.
+Among these rights is the right to worship any good
+*or man* he pleases and *in his own way*. Whoever
+disturbs or interferes with him in such worship
+strikes an unwarrantable blow at freedom of expression,
+ and in so far is false to Liberty. We heartily join
+in condemnation of the illegal arrest of Mr. Hendrix,
+not only as the act of a compulsory government
+which is not entitled to arrest anybody, but as a
+denial of one of the prerogatives which said government
+itself pretends to guarantee to its citizens.
+Still we remember that, if Mr. Hendrix is guilty, his
+arrest is simply one outrage of Liberty in return for
+another. The monument erected at Tappautown
+should be allowed to stand inviolate until taken down
+by Mr. Field impelled by a sense of his own shame.
+This, first, for a principle’s sake, because Mr. Field had
+a right to erect it, and, second, for policy’s sake, because
+ while it stands, it will commemorate ehieny,
+not the act of Andre, but the folly and servility of his
+small-souled admirer. Remember! He is no fit
+soldier of Liberty who refuses to accord Liberty to
+his enemy.
+
+Patrick Ford has issued through his journal, the
+“Irish World,” a strong personal declaration on the
+Irish land question. As a whole it is manly and has
+the right ring. To be sure, it contains one rhetorically
+ resonant passage glorifying the “Holy Catholic
+Church” and her infallibility and pledging the writer
+to a total change of his opinions the instant the
+“Mother of the Living” shall announce her antagonism
+ thereto, perhaps the most eloquent piece of self-stultification
+ to utter which any man ever soared to
+the skies with his voice or grovelled in the mire with
+his intellect. But such things are to be expected
+from Patrick Ford, the Catholic and slave of superstition.
+ Patrick Ford, the reformer and light-spreader,
+in whom alone Liberty takes interest, is quite another
+person. *He* declares afresh and in unmistakable
+terms his adherence to the “No Rent” standard, and
+rebukes, in words that would shame any but shameless
+ men, those who would nullify the grand work
+already achieved for Ireland by abandoning the Land
+League with victory almost within its grasp to engage
+in a hopeless struggle for “home rule” and Irish independence.
+ Home rule, forsooth! As if that were not
+as bad as any rule! As if Ireland had not suffered
+too much from the rule already! What she needs now is
+no rule, *anarchy*, with which will come peace. For
+where there is no rule there will be no monopoly; and
+where there is no monopoly there will be no rent; and
+where there is no rent there will be no disturbing
+land question, and every other question of human
+welfare will be started on the road to its speedy
+solution.
+
+Of the absolute correctness of the principle, and
+advisability of the policy, of free trade there can be
+no reasonable doubt, but it must be thorough-going
+free trade,—no such half-way arrangement as that
+which the so-called “free traders” would have
+adopted. David A. Wells, Professor Perry, and all
+the economists of the Manchester school are fond of
+clamoring for “free trade,” but an examination of
+their position always shows them the most ardent
+advocates of monopoly in the manufacture of money;
+the bitterest opponents of free trade in credit. They
+agree and insist that it is nothing less than tyranny
+for the government to clip a large slice out of the
+foreign product which any one chooses to import,
+but are unable to detect any violation of freedom in
+the exclusive license given the government to a
+conspiracy of note-sharing corporations called national
+ banks, which are enabled by this monopoly to
+clip anywhere from three to fifteen per cent out of
+the credit which the people are compelled to buy of
+them. Such “free trade” as this is the most palpable
+ sham to any one who really looks into it. It
+makes gold a privileged product, the king of commodities.
+ And as long as this royalty of gold exists, the
+protectionists who make so much of the theory of the
+“balance of trade” will occupy an invulnerable
+position. While gold is king, the nation which absorbs
+ it—that is, the nation whose exports largely
+exceed its imports—will surely govern the world.
+But dethrone this worst of despots, and that country
+will be the most powerful which succeeds to the
+largest extent in getting rid of its gold in exchange
+for products more useful. In other word, the republicanization
+ of specio must precede the freedom of
+trade.
+
+## To The American People.
+
+The public prints have told you of political trials in Russia
+and of the monstrous judgments daily pronounced in her
+courts. But they have told you nothing of the cruel sufferings
+of the condemned; and the victims whose names are recorded
+by them are but a fraction of the crowds that go to their doom
+in darkness and silence. Before the vast and ever widening
+discontent of the Russian people, authority in Russia is terror-stricken
+ and amazed; and it lays hands, by tens of thousands,
+on our youth, and sends them, men and women alike, into
+hopeless banishment. The deserts in the north of the Empire,
+from the dreary wastes round the White - Sea to the frozen
+shores of Eastern Asia, are scattered over with bands of exiles,
+ the flower of the Russian race. They are prisoned everywhere:
+ in wretched hamlets, in the depths of trackless and
+inhospitable forests, in remote tribal camps in Eastern Siberia,
+where hardly a word of their native tongue is spoken or understood.
+ And they have to endure not only the moral tortures
+of isolation and inactivity, but the physical pangs of hunger
+and cold. There is scarce a means of livelihood that is not
+denied them; and though to each the State allots a pittance
+for his support,—twelve shillings a month if he is nobly born;
+seven shillings a  month if he is not,—there are of late so many
+of them that it is never paid until long overdue. Month after
+month goes by, and many an exile dies for lack of bread before
+he has received a single farthing.
+
+They are mostly young and energetic; they have faith in the
+coming of better times; they are brave and strong enough to
+make little of the trials that are imposed upon them by the
+desperate necessities of their time and of the duties to which
+they are called, if they had but is hope that they might one day
+to life and work among their friends. But their strength
+is wasted by misery and hardship, and they die easily and
+soon.
+
+Money alone is needed: that much suffering may be spared
+and many sufferers may be saved. To raise it, and afterwards
+distribute it among our prisoners, we have formed a Red
+Cross Society of the People’s Will. It bears no part
+whatever in our war against authority. Its relation to the
+Revolutionary Party is that of the Red Cross Society of Geneva
+ to an army in the field. There is only one difference,—that
+ the Red Cross Society: of the People’s Will shares in each
+and every one of the dangers of the force it would succor and
+relieve.
+
+Such funds as it may raise will be devoted to but one use.
+Not a penny but will be spent upon political exiles and political
+ prisoners. It will make no distinction in favor of persons
+or opinions. All who suffer and are in need will receive of it
+alike.
+
+The Society esteems it a duty to appeal not only to the men
+and women of Russia, where to be charitable to political convicts
+ is to run the risk of suffering beside them, but to the men
+and women of the freer and happier countries of Western
+Europe and America.
+
+To this end it has appointed two or its members to work
+of organizing sections abroad, and of gathering in such sums
+as may be bestowed in favor of the ends it has in view. These
+delegates are *Vera Zassoulitch* and *Peter Lavroff*. Their instructions
+ are as follows: —
+
+(1) To appeal directly to subscribers, by means of numbered
+ and stamped subscription lists, signed by the delegates
+themselves and containing an account of all sums received.
+
+(2) To beg all journals and organs of public opinion to
+assist the Society by opening subscription lists and receiving
+and paying in subscriptions.
+
+(3) To publish accounts of all subscriptions received and
+of manner of their employ.
+
+
+(4) To appoint receivers in countries to which no delegate
+has been named, whose signature shall have equal authority
+with that of the delegates themselves.
+
+*Benj. R. Tucker*, Editor of Liberty, P. O. Box 3366, Boston,
+Mass., is the delegate for America.
+
+It is earnestly requested that subscriptions be only paid (1)
+to one or other of the delegates; (2) to persons accredited by
+the possession of subscription lists, as described above; or (3)
+to the editors of such journals as shall consent to receive subscriptions
+ for the Society.
+
+Vera Zassoulitch.
+Peter Lavroff.
+## Americans, Attention!
+
+In our issue of January 21, No. 13, appeared an
+appeal of the Nihilists for pecuniary aid, not in behalf
+of the movement itself, but for the material relief of
+those who are now suffering in consequence of their
+participation in the struggle for Liberty in Russia.
+The special appeal then printed was a translation of
+that which had been issued to the people of France.
+To-day, in another column, we printed the appeal that
+has been issued directly to the English-speaking race
+and especially to Americans. In it is stated the fact,
+which we now take pleasure and pride in announcing,
+ that the Editor of Liberty has been duly appointed
+ the American delegate of the Red Cross
+Society of the Will of People to organize the
+subscription in this country, and receive, acknowledge,
+ and transmit such responses to the appeal as
+American sympathy and American love of Liberty
+shall show its willingness to make. He assumes the
+trust thus placed in his keeping with clear sense
+of the honor conferred and full realization of its importance.
+ He adds his voice to those of Vera Zassoulitch
+ and Pierre Lavroff, who in turn speak authoritatively
+ for the best elements of Russian life,
+and, with all the earnestness at his command, asks
+every one whom it may reach to give the utmost that
+he or she can spare to succor the Siberian exiles and
+their suffering families. The appeal is to the human
+heart, regardless of individual opinions. Let it not
+be said that the citizens of the freest country in the
+world failed to do their best to heal the wounds inflicted
+ upon such of their brethren as have heroically
+struggled to cast off the chains placed upon them by
+the most absolute and cruel of autocracies.
+
+We are in possession of stamped and numbered
+subscription lists issued by the Central Committee
+of the Red Cross. To any responsible person in any
+part of America who shall signify his willingness to
+devote a portion of his time to working up the subscription,
+ one of these lists, together with copies of the
+printed appeal, will be forwarded. Especially do we
+urge our readers to take a hand, and an active one.
+in the glorious work. Individual subscriptions may
+be sent directly to Benj. R. Tucker, Box 3366, Boston,
+Mass.; also any requests for further information.
+All amounts received, with the names of the donors,
+will be acknowledged in these columns, and promptly
+transmitted, at least possible cost, to the Central
+Committee.
+
+Let us add that the appeal which we formerly published
+ occasioned, by its issuance in France, the expulsion
+ of Pierre Lavroff, one of its signers, from
+French territory by the new ministry, which professes
+ to be governed in its policy by the principle of
+Liberty. Lavroff has long lived the life of quiet
+student in Paris, spending most of his time in the
+libraries, and his expulsion is another evidence of the
+hypocrisy of the pretence that any other principle
+that authority can lie at the foundation of any form
+of government whatsoever. Before leaving France,
+he addressed a letter to Clémeceau, from which we
+quote the following passages, leaving till another
+time the burning comments of the radical press of
+Paris upon this latest outrage:
+
+> I have just been notified of the decree expelling  me from
+> French territory.
+>
+> Having scarcely busied myself at several years with
+> the affairs of France, I did not consider myself so dangerous to
+> “public safety” of the republican country in which I took
+> up my residence some five years ago. But I do not complain.
+> A revolutionary socialist, it is with me axiom that existing
+> society cannot be society of justice and liberty; if it pleases
+> the government of French republic to furnish new proofs
+> in support of my theory, it would ill become me to exhibit
+> astonishment. It acts according to the logic of its situation as
+> a government. . . . .
+>
+> It intends, in expelling me to-day, to show a mark of friendship
+> for the government of the Russian empire; but, in view
+> of the weakness and inferior intelligence of the latter, this act
+> of compliance is not unlikely to be found more disinterested
+> than we could have desired. Who knows how many other
+> concessions to political combinations will follow to-morrow?
+> It is inevitable. . . . .
+> 
+> Driven rudely from a country which I loved and where I
+> have made friends, I have only to submit to the decree, still
+> deeming it thoughtful on the part of a minister not to have
+> relegated me to some interior stronghold, or not to have conducted
+>  me to the frontier, manacles on wrists and in prison
+> wagon, as happened a year and half ago to several of my
+> friends, who had mingled as little as I in the struggles of French
+> political parties.
+>
+> I submit, then, to the decree of the ministry, and shall probably
+>  have left France when you read this letter. But it is for
+> you and your friends, representatives of the French people and
+> managers of their journals; for you, who, by talent and political
+>  influence, are the natural guardians of the interests and
+> honor of your country,—it is you ti take heed whether the
+> government of the French republic is not allowing itself to
+> glide too quickly into a path fatal to the principles of liberty
+> and democracy, whether the danger, from the moral and political
+> point of view, does not become more imminent with
+> every hour.
+>
+> In quitting France, probably forever, I shall always preserve
+> the memory of those who struggle within her boundaries for
+> the triumph of the principles of republican radicalism.
+
+* * *
+
+## Samuel Johnson.
+
+Liberty hears with regret of the death of Samuel
+Johnson. Of the religious radical who, since the
+death of Parker, have come into notice as apostles
+of Reason in Religion, Mr. Johnson, less widely
+known than many others, easily stood foremost. In
+breadth of view, clearness of thought, he had among
+the radical writers no superior. His many and carefully
+ prepared contributions to the “Radical” show
+the vigor and temper of his mind. A transcendentalist
+ of most consistent parts, he knew always where
+he stood, and was never found lapsing into uncertainty
+ and compromise. The materialist found in
+him a man with both the courage of his convictions
+and the “preparedness” to state them. He knew
+his own ground thoroughly. Probably no writer has
+presented the transcendental philosophy with more
+satisfaction to transcendental believers than did Mr.
+Johnson in an elaborate paper published in the “Radical
+ Review,” nearly five years ago. For nineteen
+years he was the preacher to a Free Society in Lynn.
+He was a firm believer in individual, personal influence
+ and power, and instinctively avoided the
+organizing, sectarian purposes and plans so beguiling
+to others. The bond of organized religious propagandism,
+ however liberal in protestations, was to his
+mind still a fetter. To swap the “Lordship of Christ”
+for the mastership of even a *tacit understanding*
+among radicals as to matters of belief was to make
+no signal advance. The mind, to be free, must follow
+ its own laws with not even the implied duty of
+social argument. Each man must do his own work
+in his own way on his own ground, and without
+fear or favor. For this duty of freedom, this absolute
+necessity for independent activity, he ever did valiant
+ and successful battle. And herein, more than
+in any other fact of his life, does Liberty rejoice. In
+*spirit* Mr. Johnson was ever a Liberty’s side. But
+not always could he see o’er what seemingly dangerous
+ passes the aspiring dame led. If he did not follow
+ her to the length of her leading, it was not that
+he lacked the courage, but that, to his ardent vision,
+the goal had been touched. Nevertheless, in his
+philosophy the foundations of Liberty were laid deep
+and strong. Sincerity, honesty of thought and expression
+ ennobled and strengthened his whole life.
+Not shrinking from the world, as some mistakenly
+have said, but retiring to his appointed tasks that he
+might well and faithfully do them, he toiled happily
+and unremittingly. Twenty years and more he had
+worked upon the three large volumes devoted to the
+“Oriental Religions,” two of which, published by J.
+R. Osgood & Co., are before the public,—“India”
+and “China.” This last-named volume is well worthy
+the widest circulation. It treats of the Chinese
+people, their religion, philosophy, government, their
+whole social life and history, in the most learned and
+intelligent manner, and has the most practical of
+bearing upon this now exciting question in American
+ politics. From its pages one learns that the much
+hated “heathen Chinee” is, in nearly all the essentials
+ of real manliness, quite beyond the imitation
+even of his Christian detractors.
+
+Mr. Johnson’s death occurred suddenly, and gave
+a sad surprise to his many personal friends. A brave,
+true man, whose memory Liberty will ever cherish!
+Had he begun life to-day with the same fervent zeal
+and clear-sightedness that characterized his anti-slavery
+ career thirty years ago, there is no doubt where
+he would have taken his stand and what new battles
+he would have helped Liberty fight. But age and
+death, foes and destroyers of us all, chained and
+claimed him. Much he did, yet much remains behind.
+ In his day and generation he did Liberty
+noble service. But nobler, higher, profounder meanings
+ the ages unveil, and we who still live must
+needs press forward into their newer and stronger
+light.
+
+> “Freedom all-winged expands,
+>
+> Nor perches in narrow place,
+>
+> Her broad van seeks unplanted lands.”
+
+These lines of Emerson he loved to quote, and now
+that his lips are still, his voice silent, Liberty to his
+memory repeats them, and adopts them as her own.
+
+## Construction and Destruction.
+
+Almost without exception every new subscriber to
+Liberty to whom its purposes are disclosed and who
+has grown up under prevailing systems exclaims:
+“Ah! I see you are wonderfully expert as tearing
+down, but you don’t say what you propose to substitute.
+ I am fully aware that our present governments
+are terribly rotten, but you don’t propose anything
+better.”
+
+Dear friends: suppose the natural road-bed from
+Boston to Lowell were of the very best quality.
+Nature had made it most admirably adapted for
+travel and transportation. But, seeing a chance to
+put up a job and rob the public, certain designing
+rogues, hired by a few thieving contractors, have
+succeeded, through the vile arts of politics, in covering
+ this natural pavement with a certain patent
+invention, gotten up by the political road-builders.
+You and we are located on this patent road. Every
+time that we put a spade into our ground we find
+that the natural bed is almost perfect. It is hard, yet
+elastic and absorptive, and in every way adapted for
+commerce and transportation, if it had only been left
+to the care of those who use it, and who have most
+at stake in its serviceability.
+
+But the patent road we find to be a perfect nuisance.
+We are constantly being levied upon by force to support
+ it and repair it. Every day we, or some of our
+neighbors, “get stuck” upon it and our property is
+ruined and disabled. It is hard to walk and ride upon.
+It is uneven. It is full of gullies and holes, and is
+in every way a constant source of damage to our
+lives and possessions.
+
+But, whenever we complain and appeal to the
+political road-builders, they are very polite and sympathetic.
+ They hear our grievances, and straightway
+ the jobbing contractors behind them set about
+to repair the road at our expense in their own way.
+The taxes increase, but the road grows worse. Some
+of us begin to suspect that the whole scheme is a put-up
+ job to rob us, but then the thought that it is the
+work of our legislative governors restrains us from
+wicked, anarchistic designs. And yet the thought
+that underneath their artificial patent road there is a
+perfect natural bod constantly haunts us. “if they
+had only let us alone,” some of us cry, “and not
+built up their artificial swindle over the natural bed
+in the first place, all would have been well.”
+
+But by and by two or three resolute dwellers along
+the road begin to ask themselves: “By what right
+do these swindling political patent-road-builders
+meddle with the natural bed? By what sacred right
+are these robbers privileged to eternally impose upon
+us? Why should they have any authority above *us*
+in these matters?” etc.; and, upon looking into the
+matter deeply, they find that the robbers have no
+solid claim to authority in natural justice.
+
+Now, then, for radical, heroic treatment! On some
+fine morning they start out with plow and pick and
+dynamite to “tear down” the useless and costly
+superstructure. But scarcely have their plows penetrated
+ the patent road and touched hard-pan when
+the other plundered neighbors arrive upon the scene.
+“Hold on!” they cry with one accord; “you are
+wonderfully expert at tearing down, but you don’t
+say what you propose to substitute. We are aware
+that the patent-road-builders and their road are terribly
+ rotten, but you don’t propose anything better.”
+The fact is that they have become so imbued with the
+idea that nothing can be properly done without resolutions,
+ bills, committees, votes, and all the red-tape
+hocus-pocus of the State that these superstitious
+falsely educated, state-craft-ridden neighbors are
+ready to pounce upon their only true friends, who
+desire to go straight down to hard-pan and abolish
+the robbing swindlers.
+
+The reply of the hard-pan men to their deluded
+neighbors is very simple. They *are* constructing
+something better in the very fact and act of tearing
+down. Removing the rotten superstructure is in and
+of itself building something better. While they are
+putting the plow down to hard-pan, they do not forbid
+ these who choose from using the old superstructure
+ till their work is done. They simply ask their
+neighbors to take hold and hasten its removal, instead
+of standing idle and finding fault, if not denouncing
+them in their righteous work. When the old rotten
+swindle is out of the way, then whatever new
+arrangements are necessary to complete the usefulness
+ of the natural road can be easily fixed upon and
+executed by mutual consent.
+
+But the old superstructure must come down before
+any construction is possible. The road of equitable
+commerce is already there, if the patent innovation
+can only be gotten out of the way. These political
+patent-road-builders are simply usurpers, who persistently
+ block the way and tax their fellow men to
+sustain their nuisances. In waging war against
+natural equity and true government it is *they* who are
+the real destructionists. If our friends will only
+wean themselves from the old delusion of confounding
+ the cart with the horse, they will then easily see
+that the friends of Liberty are the only real constructionists.
+We hope we have made our point plain.
+
+* * *
+
+In consequence of a demand that has arisen for pictures
+ of Laura Kendrick, her friends contemplate the
+production of a fine photo-lithograph of her features.
+The project will be carried out, if it receives sufficient
+encouragement. Such persons as would, in that case
+order one or more copies at twenty-five cents each
+will confer a favor by sending their names and addresses
+ without delay to Liberty for transmission to
+those having the matter in charge, in order that the
+latter may know whether or not to proceed with the
+work proposed.
+
+* * *
+
+## A Heroine of the Commune.
+
+Today is the Eighteenth of March, the anniversary of the
+Paris Commune, a glorious date in the calendar of Liberty. It
+is the day we celebrate. But this year it is Fortune’s will that
+we should celebrate it at the grave whither one of the Commune’s
+ many heroines has lately gone. Marie Ferré, sister of
+the brave Théophile Ferré who was shot at Satory by the infamous
+ Thiers, was buried at Paris in the cemetery of Levallois-Perret
+ on February 27. From various Paris papers we
+glean the following facts concerning the sad event:
+
+Marie Ferré succumbed to a disease of the heart complicated
+with rheumatism. She died at the house of a friend, Mme.
+Camille Bias, No. 27 Rue Cendorcet. From this house at nine
+o’clock in the morning the procession started. A civil burial,
+it is needless to say. Very simple obsequies. The hearse,
+one of the most modest, bore three large crowns of red and
+white roses, to say nothing of immortelles. Following the
+hearse, to the number of about fifteen hundred, were the principal
+ survivors of the Commune: Henri Rochefort, Clovis
+Hugues, General Eudes, Alphonse Humbert, Louise Michel,
+Emile Gautier, and many others. It was a long way to the
+cemetery, where the deceased was to be buried beside her
+brother, and it took an hour and a quarter to make the journey,
+ which was effected in the most tranquil manner. At the
+head of the procession walked three citizens carrying large
+crowns of red immortelles. At the grave there were several
+addresses, among which was one by Louise Michel, who said:
+
+“Citizens, soon this open tomb will close forever on the dearest
+ possession of the democratic and social revolution. Marie
+Ferré, whom we all admired, manifested all the virtues of
+woman, all the energy of man, whenever there was occasion to
+struggle for the end which we all pursue. Her memory will
+live always in the hearts of those who knew her. In her whose
+body is now to join the body of her assassinated brother we
+behold another conquered victim, and we shall not forget it.
+But, though dead, she will ever live, for she will serve as model
+and exemplar for the women of the revolution. She will recall
+to all the task which it remains for us to finish, the levelling of
+all social iniquities by justice and equality. Marie Ferré,
+adieu, and success to the revolution!”
+
+Henri Rochefort penned the following touching tribute to
+this noble woman’s memory in the columns of “L’Intransigeant,”
+ under the head, *La Sœur du Fusillé* (The Sister of the
+Shot):
+
+She is called, or rather, since they bury her this morning
+she was called Marie Ferré. Search the volumes of Shakspere,
+re-read Victor Hugo, traverse the range of bloody tragedies
+from Corneille to Æschylus, we defy you to find anything as
+dark as the story of this poor flower-girl, who died yesterday
+almost unexpectedly, we might say in the odor of sanctity:
+had that phrase not been damaged in the juggleries of the
+Catholic Church.
+
+In May, 1871, Marie Ferré lay sick of typhoid fever in a
+small room on the Rue Frasilleau, where she lived with her
+mother and brother. A police commissioner, followed by
+police agents and soldiers, burst into her room:
+
+“Where is Théophile Ferré, member of the Commune?”
+
+“I do not know.”
+
+“Perhaps your mother will know.”
+
+They spring upon Mme. Ferre, the mother, and warn her,
+with that delicacy which characterized the Versaillists in all
+their exploits, that she must make known the retreat of her
+son or be immediately shot.
+
+Marie Ferré sprang from her bed, and begged to be executed
+instead of her mother.
+
+“It is veil; dress yourself, for we are going to take you
+away,” said the chief of the squad.
+
+At seeing her daughter shivering with fever while donning
+her garb of death, Mme. Ferré could hold out no longer; her
+brain gave way. Of her two sons one, the younger, was already
+ a prisoner in the hands of the versaillists; the other
+probably could not long elude them. To top all, they were
+about to slay the sister under her very eyes. The unhappy
+woman fell senseless, and of the incoherent words that passed
+her lips the police carefully retained this address: Rue Saint-Sauveur.
+
+Thither they ran, ransacked the street until they found
+Tbéophile Ferré, and, being unable to take the mother, who
+was struck with a sort of congestion, dragged off her daughter
+Marie, who spent a week in a fetid prison amid the prisoners
+huddled there by hundreds.
+
+On restoring her her liberty the turnkeys told her that her
+father and her two brothers had been arrested, and that her
+mother, whom the last shock had driven mad, had been removed
+ to the Saint-Anne asylum, where, for the rest, she died
+shortly after. Merle alone remained, with her courage and
+her industry, to supply her relatives with the food that the
+jailers refused them, for in the prisons of Versailles without
+money there was no eating, and I have personally had the
+pleasure of saving from death by starvation two or three fellow-prisoners,
+with whom I shared the meals, much too abundant
+ for myself, which were brought to me from without.
+
+But after the week of May and the stories which the venomous
+newspapers had fabricated concerning the men of the
+Commune, at what door could one knock to obtain work who
+bore the name of Ferré? Moreover, at what hour of the day
+ could we orphan labor, when she continually had to be on the
+road from Levallois to Versailles in order to try to see her
+brothers, to whom she brought the meagre extras that constituted
+ the major portion of their daily fare?
+
+The night following Ferré’s death sentence I was awakened
+by piercing cries and a noise of broken furniture. At first I
+thought some prisoner had committed suicide. It was the
+brother of the condemned, who, occupying the cell above
+mine, had been plunged by the news of the fate in store for
+his elder brother into a sort of nervous attack complicated
+with wild delirium.
+
+They called Ferré, who slept stoically, and for some hours
+the kindness of the director allowed to remain together in one
+cell these two members of the same family, of whom one had
+lost his head and the other was about to lose his life. It was
+the latter who consoled and succeeded in calming the former.
+Only my guard, a man who, though very thoroughly hardened
+to human suffering, had, the profoundest respect for the admirable
+ bravery of the condemned man of the Commune, told
+me that on re-entering his cell Ferré, who had contained himself
+from fear of adding fuel to his brother’s excitement, seated
+himself on his bench and, placing his two elbows on the
+oaken table fastened to the wall, burst into tears.
+
+Marie, who refrained from sleep in order to procure for her
+relatives a few of the extras so necessary to them, learned, on
+arriving at the prison, that the elder of her two brothers had
+been condemned to death and that the younger had just been
+seized with a fit of burning fever. As for her father, there was
+nothing against him. Consequently they did not release him.
+They kept on waiting for something to turn up.
+
+Marie Ferré’s torture lasted five months. When I lately saw
+her again on my return from exile, I still retained all indelible
+remembrance of the young girl which her unexpected death
+has just revived. I still see her gliding like a shadow, in her
+black garments, along the corridor which led to the parlor.
+Three of us, Rossel, Ferré, and myself, generally met in these
+box-like enclosures which constitute an entire room, a sort of
+cellular omnibus. Being all three marked for death, we had
+been placed side by side on the ground floor of the prison, with
+two overseers, who, through our open grates, kept their restless
+eyes steadily upon us.
+
+In the parlor Mlle. Rossel, Mlle. Ferré, and my children
+gathered with a common feeling of anxiety. I shall never
+forget, when they learned that I was sentenced only to perpetual
+ exile in a fortified district, the look of sympathetic envy
+which the two young girls out upon my daughters, seeming to
+say:
+
+“Your father is simply destined to end his days six thousand
+five hundred leagues away among cannibals; are you not
+happy enough?”
+
+The sister of Ferré, like the sister of Delescluze, struggled
+bravely against the bitterness of her sorrows, and then fell conquered.
+ The day when the clerical calendar, which the postman
+ brings us every year, shall be replaced by the republican
+calendar, the name of this martyr will shine among the most
+memorable; and if ever civil baptism succeeds religious baptism,
+ honest women will place their infants under the shield of
+her memory and her virtue.
+
+## The Andre Monument.
+
+The following resolutions were passed at a recent meeting of
+the Jersey City group of the International Working People’s
+Association:
+
+*We resolve* that we protect against the illegal arrest and imprisonment
+ of citizen Hendrix on a charge of defining a monument
+ erected by traitor Field in memory of spy Andre.
+
+*We further resolve* that it is a blow aimed at the rights of
+freemen more deadly than the cannon balls of George the
+Third.
+
+*We further* resolve that this dastardly outrage in arresting
+citizen Hendrix on such charge is an insult to the Rebels of
+1776 and to the freemen of to-day.
+
+*We further resolve*, in the name of Justice and Solidarity, to
+give our moral and material support to citizen Hendrix or any
+other person whomsoever who may be imbued with such a
+spirit of patriotism.
+
+* * *
+
+## Church and State.
+
+Liberals complain of the oppressions of the church; they say,
+and truly, that the church is the favorite or the State. But
+they forget that, were it not for the State, the church would be
+powerless for evil in this direction. Behind the exemption of
+church property, the Sunday laws, Bible in the schools, etc.
+stands the State, enforcing by the power of every bayonet
+these unjust discrimination. The State has ever been the
+executive arm of the church. *Her* judges, *her* sheriffs, *her*
+jailers have sentenced, have hung, racked, burned, exiled, and
+imprisoned the sentenced heretics in all ages. To-day she
+forces upon us the morality of the church, and our refusal to
+conform to the standard ecclesiastic is tantamount to rebellion
+against the State. The latter power stands pledged to compel
+us to speak and act in church channels. Let us open our eyes
+and take a square look at the work before us.
+
+E. C. Walker.
+
+## Legislation: its Origin and Purpose.
+### [From Lysander Spooner’s “Natural Law.”]
+
+Through all historic times, wherever any people have advanced
+ beyond the savage state and have learned to increase
+their means of subsistence by the cultivation of the soil, a
+greater or less number of them have associated and organized
+themselves as robbers to plunder and enslave all others who
+had either accumulated any property that could be seized, or
+had shown by their labor that they could be made to contribute
+to the support or pleasure of those who should enslave them.
+
+These bands of robbers, small in number at first, have increased
+ their power by uniting with each other, inventing
+warlike weapons, disciplining themselves, and perfecting their
+organizations as military forces, and dividing their plunder
+(including their captives) among themselves, either in such
+proportions as have been previously agreed on, or in such it
+their leaders (always desirous to increase the number of their
+followers) should prescribe.
+
+The success of these bands of robbers was an easy thing, for
+the reason that those whom they plundered and enslaved were
+comparatively defenceless; being scattered thinly over the
+country; engaged wholly in trying, by rude implements and
+heavy labor, to extort a subsistence from the soil; having no
+weapons of war, other than sticks and stones; having no military
+ discipline or organization, and no means of concentrating
+their forces, or acting in concert, when suddenly attacked.
+Under these circumstances the only alternative left them for
+saving even their lives, or the lives of their families, was to
+yield up not only the crops they had gathered and the lands
+they had cultivated, but themselves and their families also as
+slaves.
+
+Thenceforth their fate was, as slaves, to cultivate for others
+the lands they had before cultivated for themselves. Being
+driven constantly to their labor, wealth slowly increased; but
+all went into the hands of their tyrants.
+
+These tyrants, living solely on plunder and on the labor of
+their slaves, and applying all their energies to the seizure of
+still more plunder and the enslavement of still other defenceless
+ persons; increasing, too, their numbers, perfecting their
+organizations, and multiplying their weapons of war, they extend
+ their conquests until, in order to hold what they have
+already got, it becomes necessary for them to act systematically,
+and co-operate with each other in holding their slaves in
+subjection.
+
+But all this they can do only by establishing what they call
+a government, and making what they call laws.
+
+All the great governments of the world—those now existing
+as well as those that have passed away—have been of this
+character. They have been mere bands of robbers, who have
+associated for purposes of plunder, conquest, and the enslavement
+ of their fellow men. And their laws, as they have called
+them, have been only such agreements as they have found it
+necessary to enter into in order to maintain their organizations
+ and act together in plundering and enslaving others and
+in securing to each his agreed share of the spoils.
+
+All these laws have had no more real obligation than have
+the agreements which brigands, bandits, and pirates find it necessary
+ to enter into with each other for the more successful
+accomplishment of their crimes and the more peaceable division
+of their spoils.
+
+Thus substantially all the legislation of the world has had
+its origin in the desires of one class of persons to plunder and
+enslave others, *and hold them as property*.
+
+In process of time, the robber, or slave-holding, class—who
+had seized all the lands and held all the means of creating
+wealth—began to discover that the easiest mode of managing
+their slaves and making them profitable was not for each slaveholder
+ to hold his specified number of slaves, as he had done
+before, and as he would hold so many cattle, but to give them
+so much liberty as would throw upon themselves (the slaves)
+the responsibility of their own subsistence, and yet compel
+them to sell their labor to the landholding close—their former
+owners—for just what the latter-might choose to give them.
+
+Of course, these liberated slaves, as some have erroneously
+called them, having no lands or other property and no means
+of obtaining an independent subsistence, had no alternative—to
+ save themselves from starvation—but to sell their labor to
+the landholders in exchange only for the coarsest necessaries
+of life; not always for so much even as that.
+
+These liberated slaves, as they were called, were now scarcely
+less slaves than they were before. Their means of subsistence
+were perhaps even more precarious than when each had his own
+owner, who had an interest to preserve his life. They were
+liable, at the caprice or interest of the land-holders, to be
+thrown out of home, employment, and the opportunity of even
+earning a subsistence by their labor. They were, therefore, in
+large numbers, driven to the necessity of begging, stealing, or
+starving, and became, of course, dangerous to the property
+and quite of their masters.
+
+The consequence was that these late owners found it necessary,
+ for their own safety and the safety of their property, to
+organise themselves more perfectly, as a government *and make
+laws keeping these dangerous people in subjection;* that is,
+laws fixing the prices at-which they should be, compelled to
+labor, and also prescribing fearful punishments, even death
+itself, for such thefts and trespasses as they were driven to commit
+ as their only means of saving themselves from starvation.
+
+These laws have continued in force for hundreds, and, in
+some countries, for thousands of years; and are in force to-day,
+in greater or was severity, in nearly all the countries on
+the globe.
+
+The purpose and effect of these laws have been to maintain,
+in the hands of the robber, or slave-holding class, a monopoly
+of all lands and, as far as possible, of all other means of creating
+ wealth; and thus to keep the great body of laborers in such
+a state of poverty and dependence as would compel them to
+sell their labor to their tyrants for the lowest prices at which
+life could be sustained.
+
+The result of all this is that the little wealth there is in the
+world is all in the hands of a few,—that is, in the hands of
+the law-making, slave-holding class, who are now as much
+slave-holders in spirit as they ever were, but who accomplish
+their purposes by means of *the laws they make* for keeping the
+laborers in subjection and dependence, instead of each one’s
+owning his individual slaves as so many chattels.
+
+Thus the whole business of legislation, which has now grown
+to such gigantic proportions, had its origin in the conspiracies
+which have always existed among the few for the purpose of
+holding the many in subjection and extorting from them their
+labor and all the profits of their labor.
+
+And the real motives and spirit which lie at the foundation
+of all legislation—notwithstanding all the pretences and disguises
+ by which they attempt to hide themselves—are the
+same to-day as they always have been. The whole purpose of
+this legislation is simply to keep one class of men in subordination
+ and servitude to another.
+
+What, then, is legislation? It is an assumption by one man,
+or body of men, of absolute, irresponsible dominion over all
+other men whom they can subject to their power. It is the
+assumption by one man, or body of men, of a right to subject
+all other men to their will and their service. It is the assumption
+ by one man, or body of men, of a right to abolish outright
+all the natural rights, all the natural liberty of all other men;
+to make all other men their slaves; to arbitrarily dictate to all
+other men what they may and may not do, what they may and
+may not have, what they may and may not be. It is, in short,
+the assumption of a right to banish the principle of human
+rights, the principle of justice itself, from off the earth, and
+set up their own personal will, pleasure, and interest in its
+place. All this, and nothing less, is involved in the very idea
+that there can be any such thing as human legislation that is
+obligatory upon those upon whom it is imposed.
+
+## Another Ingersoll in the Field.
+
+The Talmage-Ingersoll controversy has called out the following
+ letter from the colonel’s brother in defense of his
+father and the colonel himself:
+
+*Rev. T. D. Talmage, D.D.*
+Sir:—I have before me a copy of the Cincinnati “Enquirer”
+ containing the report of a sermon delivered by you on
+the 5th instant, upon the “Meanness of Infidelity.” In the
+course of your remarks you say that you had just received a
+letter from some one informing you that the Rev. John Ingersoll,
+ father of R. G. Ingersoll and myself, “was abstemious
+to a fault, and the family suffered accordingly. The children
+were commanded to eat, drink, and dress sparingly. He
+never spoken kind word of his wife, who was a noble Christian
+ woman, nor of his children, within the knowledge of persons
+ now living here, who were familiar with the family. At
+last the mother died. She was cared for by friends in her
+sickness, and on the day of her interment gentle hands carried
+her form, and rested it for a time on the catafalque. Mr.
+Ingersoll, to the astonishment of all present, deliberately
+removed his cravat and gloves, stepped on the rostrum, and
+delivered a eulogy over the body. He attempted to extol her
+virtues and panegyrize her conduct. It was the first time he
+had ever been known to speak well of her in public.”
+
+Now, reverend sir, “will you be kind enough to tell your
+informant, for me, that he or she is a malignantly cruel, heartless,
+ and infamous liar? Our father was poor; I will not
+deny it. In the, days of my childhood a minister was forced
+to practise strict economy to support a family and educate his
+children upon a salary of $500 a year. We had abundance to
+eat and were well clothed, and certainly no man ever better
+enjoyed ministering to the wants of his family than did our
+loved and honored father. I believe him to have been an eminently
+ good and conscientious man—I do not say faultless.
+As for Robert, I will say he was as good and obedient a boy
+as I ever knew, but all this is neither here nor there. He
+denies that the Bible is the inspired word of God, and gives
+his reasons. Here you take issue with him. Now, is it not
+possible to successfully combat his errors without opening the
+tomb and spattering with calumny our loved and honored
+dead? Speaking of your father and mother you say:
+“Would it not have been debasing in me to hook the horses to
+the ploughshare of contempt to turn up the mould of their
+graves?” True. Now let me ask you if you don’t think that
+the Golden Rule requires you to unhook your horses before
+you ruthlessly turn up the sacred dust that hides from the
+light of day our father’s snow-white hair. But “Ingersol
+assails the belief of the father.” Well, sir, had your father
+been an infidel, would you know, entertaining the views you
+do, combat his opinions? That would probably be a very
+different thing. Ingersoll says he can not believe that God,
+the father of us all, ever commanded the Jews to wage wars
+of extermination against their neighbors, and was delighted
+at the sight of a babe’s blood trickling down the handle of a
+Jewish spear. Moses said when a woman gave birth to a son
+thirty-three days were necessary to purify her, but, if she gave
+birth to a daughter, sixty-six days were necessary. Ingersoll
+says that looks to him like nonsense, and he really can not
+believe that God ever ordered any such thing. He says he
+cannot believe that God, who winked at polygamy and
+established slavery, ever ordered a man to be pounded to
+death with stones simply for picking up sticks on the Sabbath
+day. He says he can not believe that God ever gave express
+permission to one part of his family to sell diseased meat to
+the other.
+
+When David says of somebody, “Let there be none to extend
+ mercy unto him, neither let there be any to favor his
+fatherless children,” he says it is impossible for him to believe
+that either the words or thought were inspired by the good God.
+Now, if you will draw your theologic belt one hole tighter and
+answer these things, you will do everybody a favor. You ask
+Ingersoll to retire to his chamber, lock his door, and read the
+fourteenth chapter of John. It is good reading. Let me ask
+you to read the fifteenth Psalm: “Lord, who shall abide be
+Thy tabernacle? who shall dwell in Thy holy hill?” “He
+that backbiteth not with his tongue, nor death evil to his neighbor,
+ nor taketh ups reproach against his neighbor.” With
+all due respect, I am yours,
+
+John L. Ingersol.
+Prospect Hill, Waukesha Co., Wis.
