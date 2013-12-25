@@ -29,20 +29,35 @@ The appeal of the "Red Cross Society of the People's Will" for aid for the suffe
 Receipts to March 28,1882.
 
 John Swinton, New York,...... $40.00
+
 Wm. B. Wright, Boston....... 2.00
+
 Emil Ross, Boston,....... 1.00
+
 A Friend, Baldwinsville, N. Y.,...... 1.00
+
 Mel. Herbert, Boston,....... .50
+
 E. Plisworth, Boston,....... .50
+
 Cash, Boston,......... .25
+
 P. K. O'Lally, Boston,....... 1.50
+
 G. V. Williams, Boston,...... 1.00
+
 H. W. Brown, Boston,....... .5O
+
 F. C. Freigang, Boston,..... 1.00
+
 W. L. Sexauer, Boston,...... 1.00
+
 Walter C. Wright, Medford, Mass., .... 2.00
+
 J. W. Holland, Boston,....... 1.00
+
 Friends in Providence, R. I., (names to be acknowledged in next issue)...... 7.00
+
 Total,........$60.25
 
 The munificent subscription with which John Swinton leads the list comes from one of the fortunate few who unite a big heart with a big salary and whose sympathies are with the unfortunate many. By all means let those who are able surpass him in his generosity, and let those who are not approach him as nearly as they can. But by no means let the poorest be deterred from contributing his or her mite by any fear that it will not be as warmly welcomed as the larger offerings of the more favorably situated. Every little helps to swell the total, which, in any event, will be all too small for the *entire* fulfilment of the purpose in view. To the many newspapers of the country which have helped to make known the nature of this purpose Liberty, in behalf of the sufferers, extends the most hearty thanks; also to the friends who send us words of encouragement. We print below two of the letters thus far received:
