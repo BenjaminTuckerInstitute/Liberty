@@ -116,7 +116,7 @@ But Gladstone, Forster, and the landlords are not the only uneasy victims. A nes
 
 Priests are the natural enemies of all protests against usury, fraud, and plunder. In fact, these cunning conspirators are nothing but landlords themselves in spirit and vocation, since they return even less for their usurious fees than do the landlords. In league with these rosy-faced spiritual rogues the Irish lawyers and other Irish tribute-takers are generally found. The whole craw are fellow-usurers in one boat.
 
-As usual, ft is the Irish workingmen who are doing the glorious work of "no-rent." But, as success seems more and more distinctly promised, the priests redouble their effort to coax, bribe, and threaten them away from their noble task. They are consistent, and understand their game. But being forced to show their hands and play their trumps, certain it is that hundreds of their dupes are gradually opening their eyes, and quietly parting company with these infamous spiritual rack-renters.
+As usual, it is the Irish workingmen who are doing the glorious work of "no-rent." But, as success seems more and more distinctly promised, the priests redouble their effort to coax, bribe, and threaten them away from their noble task. They are consistent, and understand their game. But being forced to show their hands and play their trumps, certain it is that hundreds of their dupes are gradually opening their eyes, and quietly parting company with these infamous spiritual rack-renters.
 
 ## What we mean
 
