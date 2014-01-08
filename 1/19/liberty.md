@@ -1,4 +1,12 @@
-﻿## On Picket Duty.
+> "For always in thine eyes, O Liberty!
+>
+> Shines that high light whereby the world is saved;
+>
+> And though thou slay us, we will trust in thee."
+
+John Hay.
+
+## On Picket Duty.
 
 Of the ten Nihilists recently sentenced to death the czar pardoned five in response to the appeal of Victor Hugo. Thereupon the French poet — to his shame be it said! — drank to the health of the czar in the presence of a company of Parisian journalists. This so tickled the czar's vanity that he straightway pardoned four more of them. What playthings are men in the hands of monarche, their lives dependent upon a passing caprice!
 
@@ -17,6 +25,8 @@ Mr. Patrick Ford, editor of the "Irish World," is in a dilemma. Ho appears not t
 David Dudley Field has completed his codification of the law of the State of New YorK, but there is considsrable opposition to the adoption of his code. During its discussion before a legislative committee an able lawyer, Mr. Carter, used this language: "What is the common law? Is it contained in any act? No. Is it in any book reports? No. You will find evidences of it there, but the law is not there. Where is it? It rests in those eternal and immutable principles of justice which were enacted before legislators ever sat." Whereat brother Cyrus W. Field was inexpressibly shocked. To hint even at the existence of justice was horrifying to a man who has heaped up millions by injustice. So, coming to the defence of brother David, he immediately wrote in his organ, the "Mail and Express:" "The wildest Pre-Raphaelite never went so far against the laws of art as Mr. Carter did against the laws of men in this ecstatic and lawless language." It is admitted, then, by the Fields that, to such as they, justice is an absurdity, love of principle ecstasy and lawlessness, and life a scramble involving no duty but that of trampling on one's fellows. Is not their own confession a severer condemnation of their lives than that visited upon the class to which they belong in Lysander Spooner's unanswerable pamphlet on "Natural Law"?
 
 A new number of the revolutionary organ, "Narodnaia Volia," containing nineteen pages of closely printed matter, is at present in circulation in Russia. The leading article, headed "The Present Position of the Party," is devoted chiefly to a review of the results which followed tho assassination of a year ago. The writer premises his remarks by the statement that, if only the discontented element of Russian society was able to insist on and obtain the minimum demands put forward by the executive committee, the necessity of resorting to violent measures might be avoided. He then proceeds to review the position of the various parties in Russia, and arrives at the conclusion that there are no elements to be found in Russian society capable of playing historical parts. The national reformers, he says, have hidden their heads in fear and trepidation, lest they should suffer for the actions of the revolutionary party. Our Conservatives find no other weapons of combat than slander, falsehoods, and denunciations, and cherish the hope that something may remain out of the edifice of clay which they are raising. Our Liberals, taken by surprise, are blushing with confusion, and the whole activity of these sorry creatures consists isn plaintively begging for a constitution, and undertaking at the same time to be as obedient as before. The article concludes by referring to the programme of the party and the object it has in view,— the subversion of the present governmental and social order. This object, the writer asserts, the party will pursue, notwithstanding the reprisals of the government. As before, men ready to sacrifice their lives will be forthcoming, and our advice is "Victory or Death."
+
+> "A free man is one who enjoys the use of his reason and his faculties; who is neither blinded by passion, not hindered or driven by oppression, not deceived by erroneous opinions." — Proudhon.
 
 ## The Red Cross Fund.
 
