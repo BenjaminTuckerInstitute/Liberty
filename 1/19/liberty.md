@@ -24,50 +24,51 @@ We give below another report of the progress made in collecting contributions fo
 
 ### Receipts to April 11, 1882.
 
-———————-   | ——:
-Previously acknowledged, | $ 60.25
-John Murray, Hoosick Falls, N.Y, | .50
-Charles Schofield, Chelsea, Mass, | .60
-Nadejda, | 5.00
-Jules M., Chicago, | 1.00
-Benj. F. Cheney, Chicago, | 1.60
-T. Dwight Stow, Fall River, Mass, | 3.00
-Chicago Socialists, forwarded by Aug. Spies (partly the proceeds of a dramatic entertainment), | 25.60
-Ivan Panin, Cambridge, Mass., | 2.00
-J. W. Cooper, Cooper, Colorado, | 1.00
-James P. McLaughlin, Boston, | .60
-Florence Crowley, Boston, | .80
-W. W. Shaw, Boston, | .60
-Paine Memorial Lecture Society, Boston (a collection taken for the purpose). | 24.03
-Reuben Cooley, Jr., Georgia, Vermont, | 1.00
-Dr. Simeon Palmer, Boston, | 3.00
-"No Name," Philadelphia, | 1.00
-Cash, Boston, | 6.00
-Nathan Block, Providence, R.I., | .60
-A. Strauss, Providence, R.I., | .50
-A Friend, Boston, | .60
-A Fool, Boston, | .25
- | —--
-Total, | $ 137.63
+Previously acknowledged, ... $60.25
+John Murray, Hoosick Falls, N.Y, ... .50
+Charles Schofield, Chelsea, Mass, ... .60
+Nadejda, ... 5.00
+Jules M., Chicago, ... 1.00
+Benj. F. Cheney, Chicago, ... 1.60
+T. Dwight Stow, Fall River, Mass, ... 3.00
+Chicago Socialists, forwarded by Aug. Spies (partly the proceeds of a dramatic entertainment), ... 25.60
+Ivan Panin, Cambridge, Mass., ... 2.00
+J. W. Cooper, Cooper, Colorado, ... 1.00
+James P. McLaughlin, Boston, ... .60
+Florence Crowley, Boston, ... .80
+W. W. Shaw, Boston, ... .60
+Paine Memorial Lecture Society, Boston (a collection taken for the purpose). ... 24.03
+Reuben Cooley, Jr., Georgia, Vermont, ... 1.00
+Dr. Simeon Palmer, Boston, ... 3.00
+"No Name," Philadelphia, ... 1.00
+Cash, Boston, ... 6.00
+Nathan Block, Providence, R.I., ... .60
+A. Strauss, Providence, R.I., ... .50
+A Friend, Boston, ... .60
+A Fool, Boston, ... .25
+
+———————
+
+Total, ... $137.63
 
 ### Remitted to Nicolas Tchaikovsky, London.
 
-——————————-- | ——:
-March 31, Drift for £10, costing | $ 49.60
-April 5, Draft for £10, costing | 49.60
-April 11, On hand, | 38.63
- | —--
- | $ 137.63
+March 31, Drift for £10, costing ... $49.60
+April 5, Draft for £10, costing ... 49.60
+April 11, On hand, ... 38.63
+
+———————
+
+$137.63
 
 The following are the names of the Providence people who gave the seven dollars acknowledged in our last issue:
 
-| --------------- |------: |
-| Wm. Foster, Jr, | $ 2.00 |
-| L. K. Joslin,   |   1.00 |
-| Louis Kranz,    |   1.00 |
-| C. Heimberger,  |   1.00 |
-| Dr. Wm. Barker, |   1.00 |
-| Henry Appleton, |   1.00 |
+Wm. Foster, Jr, ... $2.00
+L. K. Joslin, ... 1.00
+Louis Kranz, ... 1.00
+C. Heimberger, ... 1.00
+Dr. Wm. Barker, ... 1.00
+Henry Appleton, ... 1.00
 
 Appended are a few of the letters that have accompanied contributions:
 
