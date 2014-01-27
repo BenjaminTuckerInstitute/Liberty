@@ -63,7 +63,7 @@ Total, ... $137.63
 
 ### Remitted to Nicolas Tchaikovsky, London.
 
-March 31, Drift for £10, costing ... $49.60
+March 31, Draft for £10, costing ... $49.60
 April 5, Draft for £10, costing ... 49.60
 April 11, On hand, ... 38.63
 
