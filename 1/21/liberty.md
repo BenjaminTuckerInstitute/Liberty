@@ -8,7 +8,7 @@ John Hay.
 
 ## On Picket Duty.
 
-In consequence of the Dublin murder, Mr. Gladstone has introduced a bill "for the repression of crime in Ireland." We wish this most excellent purpose might be carried out, and would suggest to Mr. Gladstone that the first crime he should attempt to repress is one of about seven hundred years' standing. Until this first a'll great crime shall be repressed, we think all his other effort to repress crime in Ireland will be labor lost.
+In consequence of the Dublin murder, Mr. Gladstone has introduced a bill "for the repression of crime in Ireland." We wish this most excellent purpose might be carried out, and would suggest to Mr. Gladstone that the first crime he should attempt to repress is one of about seven hundred years' standing. Until this first and great crime shall be repressed, we think all his other effort to repress crime in Ireland will be labor lost.
 
 The "Index-Appeal" of Petersburg, Virginia, says that "there is no known belief, misbelief, or unbelief that has not a building erected in its honor in New England and called a church." The "New York Times" answers: "Oh, yes, there is one,— that slavery was a divine institution." True enough, but only because the churches of New England were at one time so nearly unanimous in defending or excusing slavery that there was no call for erecting another especially in its honor.
 
@@ -274,7 +274,7 @@ The wealth of the nation is in an immense *grab bag*; its acquisition is a grab 
 
 It seems to me that a presentation of the case in the above manner would reach and operate on thousands who still think there is a *fortune* for them. An illustrated handbill stating the above fact would *make a stir*.
 
-But I don't look for anything of the kind from.American "agitators." If the Irish fail to hold their grip, then the "end of the world," I fear, is not to be seen by us. I have thought from the start, however, that their movement would prove to be the beginning of the end.
+But I don't look for anything of the kind from American "agitators." If the Irish fail to hold their grip, then the "end of the world," I fear, is not to be seen by us. I have thought from the start, however, that their movement would prove to be the beginning of the end.
 
 Universal bankruptcy is the medicine that will give the world an appetite for its natural food. When the millions who now are deluded with the idea that there is a prize for them in the (grab) *bag* cease to foot the bills and pay the interest arising from the folly of the present gambling system left them by past generations, then will their enemies and the enemies of truth be vanquished. Then, with less labor than they *now expand to yet what does not exist*, they will have enough to make them comfortable and happy, which is more than they have now, or can have, because it is not in the *Bag*.
 
