@@ -12,7 +12,7 @@ The detestable tendency of superstition to make the observance of its ceremonies
 
 Brennan, too, is unterrified. Released from prison, the first utterance of the brave young secretary of the Land League is, not that the land question is settled, but that much remains to be done, and that landlordism must be torn up by the roots. It is a significant fact that, of the leaders of the League, the two most pronounced "Irish World" men, Davitt and Brennan, have stood the test of persecution most unflinchingly. They were engaged in no mere political agitation; they had no selfish ends in view; but the love of justice had entered their hearts and the idea of justice their heads, and in the hour of trial these sustained them in the performance of their duty. There is nothing equal to moral principle as an inspiration to heroic conduct.
 
-By Garibaldi's death the world loses one of its bravest, truest spirits, a man cast in Nature's most heroic mold. Decrepitude and disease combined during his latter years to disable him from active effort, but neither could dampen his ardor in the cause of justice, and he remained steadfast to the end unspoiled by popularity, and ever ready, when occasion required, to lift his voice in behalf of the social revolution. The man will be remembered in history for his sterling character more than for any of his deeds, and the results of political and social progress will show that for which he is now most famous, the unification of Italy, as the most valueless achievement of his life. It was really a step backward and away from the federative policy that must sooner or later prevail throughout the world. But in taking it Garibladi was actuated only by the purest motives, --not at all by a desire to strenghten the instrumentalities of tyranny. For that he hated everywhere, whether in Church or State, and as an uncompromising enemy thereof he will chiefly be remembered.
+By Garibaldi's death the world loses one of its bravest, truest spirits, a man cast in Nature's most heroic mold. Decrepitude and disease combined during his latter years to disable him from active effort, but neither could dampen his ardor in the cause of justice, and he remained steadfast to the end unspoiled by popularity, and ever ready, when occasion required, to lift his voice in behalf of the social revolution. The man will be remembered in history for his sterling character more than for any of his deeds, and the results of political and social progress will show that for which he is now most famous, the unification of Italy, as the most valueless achievement of his life. It was really a step backward and away from the federative policy that must sooner or later prevail throughout the world. But in taking it Garibladi was actuated only by the purest motives, —not at all by a desire to strenghten the instrumentalities of tyranny. For that he hated everywhere, whether in Church or State, and as an uncompromising enemy thereof he will chiefly be remembered.
 
 From two judgments recently passed by "The Critic," which claims to be one of the first literary journals in America and is edited by men who claim to be advanced thinkers, it may be seen how dangerous would be official literary censorship even when lodged in the hands of the wisest. The journal in question ardently admires Walt Whitman, and prints frequent contributions from his pen. In May, commenting upon Zola's "Pot-Bouille," it called Mr. Comstock's attention to that book, and asked suppress it. Curiously enough, almost at that very moment Mr. Comstock and his tools had just consummated the suppression of the works of "The Critic's" idol, Walt Whitman. Consequently, in its next issuee, "The Critic" had to defend "Leaves of Grass" by an argument admirable enough, but which would have served equally well as an answer to its own attack on "Pot-Bouille." We see, therefore, that, had the editor of "The Critic" been secretary of the Vice Society, he would have been as unwarrantable a tyrant as Comstock himself, albeit in a different direction. It is of no use to change tyrants; the thing is to abolish tyranny. Let no one suppose that Liberty holds Whitman responsible for "The Critic's" inconsistency. He is above such weakness. Nor would we be understood as classing Whitman and Zola on the same literary level.
 
@@ -132,7 +132,7 @@ Maria Hamann, Jersey City,N.J., ... .50
 Jersey City Heights Group of the International Working-People's Association, per A. Herben, treasurer, ... 5.00
 "Basis," Boston, ... 2.00
 
- — — — — — — — 
+———————
 
 Total, ... $211.16
 
@@ -143,7 +143,7 @@ April 5, Draft for £10, costing ... 49.50
 April 21, Draft for £10, costing ... 49.50
 June 6, On hand, ... 62.65
 
- — — — — — — — 
+———————
 
 $211.15
 
@@ -183,7 +183,7 @@ Mrs. Leon, ... .20
 Ch. Chatel, ... .50
 Mott, ... .50
 
- — — — — — — — 
+———————
 
 Total, ... $60.03
 
