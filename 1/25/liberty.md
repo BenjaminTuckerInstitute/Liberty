@@ -85,7 +85,7 @@ Is not poverty, directly or indirectly, the principal cause of illegal crime?
 
 Is not usury dependent upon monopoly, and especially upon the land and money monopolies?
 
-Could these monopolies exist without the State f t. their back?
+Could these monopolies exist without the State at their back?
 
 Does not by far the larger part of the work of the State consist in establishing and sustaining these monopolies and other results of special legislation?
 
@@ -163,73 +163,135 @@ The only natural right Capital has, as seen by the *law of decay* that is contro
 Read July 26, 1882, on the grounds of Walter C. Wright, of Medford, Mass., before a party gathered in celebration of the sixty-fifth birthday of Mrs. Lucy N. Colman, the veteran abolitionist.
 
 > O Friend! the fevorish years have ebbed away,
+>
 > Bearing the burdens of Right and Wrong;
+>
 > Mad, glad years,— Earth's incubating Day,
+>
 > Time all Impotent for Purpose strong.
+>
 > Hours of sad years!
+>
 > Joys, loves, and tears! 
+>
 > Who's glad to-day? Is't thou?
+>
 > Ah, no! but we who now 
+>
 > Behold the aureole of peace,
+>
 > That seared, solemn peace,
+>
 > That glint of silver sheen 
+>
 > By you, perchance, unseen.
+>
 > They of prophetic sight 
+>
 > Watch it breaking into light 
+>
 > Of that New Day,
->
+
 > Serene thou may'st rest to-day;
+>
 > We chant, "thine own are come to thee,"
+>
 > Up from the earth and down the "Shining Way"
+>
 > They come, they whom thou gav'st Liberty,
+>
 > Thou friend in *deed* 
+>
 > For worthy *need*.
+>
 > Who's glad to-day? Is't thou?
+>
 > Ah, no! but we who now 
+>
 > Count the birthdays all so brief;
+>
 > Who see thee as God's ban-relief 
+>
 > Leaning soulward in love's light;
+>
 > Guiding *all* slaves, black or white;
+>
 > Teaching yet the half untold;
+>
 > Teaching love that's never been told,
+>
 > The prelude of New Day.
->
+
 > What are earth's years, O faithful friend! 
-> But elemental tempest rude?
-> This habitat of clay God's potter 'gins to mend. 
-> Three-score of Time the spirit lieth nude,
-> It Just being born,
-> From earth-mould torn.
-> Who's glad to-day? Is't thou?
-> Yes, O Soul, rejoice *now*!
-> Thou'st felt the bigot's ocarse disdain 
-> And Liberty's exquisite pain.
-> All wounds like these soon heal,
-> And souls like thine quick feel 
-> The Fate that's consecrate to thee,
-> That higher power of Destiny.
-> Thy genial, radiant face 
-> Illumes this woodland space 
-> On this glad day.
 >
+> But elemental tempest rude?
+>
+> This habitat of clay God's potter 'gins to mend. 
+>
+> Three-score of Time the spirit lieth nude,
+>
+> It Just being born,
+>
+> From earth-mould torn.
+>
+> Who's glad to-day? Is't thou?
+>
+> Yes, O Soul, rejoice *now*!
+>
+> Thou'st felt the bigot's ocarse disdain 
+>
+> And Liberty's exquisite pain.
+>
+> All wounds like these soon heal,
+>
+> And souls like thine quick feel 
+>
+> The Fate that's consecrate to thee,
+>
+> That higher power of Destiny.
+>
+> Thy genial, radiant face 
+>
+> Illumes this woodland space 
+>
+> On this glad day.
+
 > As Summer pours her oils and wine,
+>
 > So give we tribute to thy soul.
+>
 > Some newer meaning of the "mine and thine"
+>
 > Hath thy life given in generous dole,
+>
 > O earnest woman,
+>
 > So grandly human! 
+>
 > Who's glad to-day? All, all! 
+>
 > The great who greet thee and the small.
+>
 > What matters silent tongue or spoken,
+>
 > If kindred faith the soil has broken,
+>
 > And planted Principles as trees 
+>
 > To wrestle with the centuries?
+>
 > We keep this day that you were born,
+>
 > Forgetting wrongs and doubts forlorn.
+>
 > Thou'st taught new births are possible for men 
+>
 > Who upward build from Right again.
+>
 > Peace, weary heart! Shine Autumn's Sun 
+>
 > Setteth all glorious o'er Duty done.
+>
 > Prophetic of New Day.
 
 J.V.
