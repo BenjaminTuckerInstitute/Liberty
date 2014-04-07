@@ -6,7 +6,7 @@
 
 John Hay.
 
-﻿## On Picket Duty.
+##On Picket Duty.
 
 The Malden "Headlight" accuses the editor of Liberty of bad generalship in placing his heaviest guns "on picket duty."
 
