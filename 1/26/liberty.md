@@ -6,7 +6,7 @@
 
 John Hay.
 
-##On Picket Duty.
+## On Picket Duty.
 
 The Malden "Headlight" accuses the editor of Liberty of bad generalship in placing his heaviest guns "on picket duty."
 
@@ -47,65 +47,65 @@ Question — Do nations go to war nowadays?
 
 Answer — No; their rulers do.
 
-Q. But what does the nation do?
+Q\. But what does the nation do?
 
-A. The fighting and the paying.
+A\. The fighting and the paying.
 
-Q. How many men were directly concerned in making the trouble between England and Egypt?
+Q\. How many men were directly concerned in making the trouble between England and Egypt?
 
-A. Possibly half a dozen lords and bankers.
+A\. Possibly half a dozen lords and bankers.
 
-Q. And the remainder of England's millions?
+Q\. And the remainder of England's millions?
 
-A. Follow their leaders, and have very little to do or say in the matter.
+A\. Follow their leaders, and have very little to do or say in the matter.
 
-Q. And what is the war all about;
+Q\. And what is the war all about;
 
-A. A debt.
+A\. A debt.
 
-Q. Owed by all the Egyptians to all the English?
+Q\. Owed by all the Egyptians to all the English?
 
-A. No; owed by a few fast Egyptians to a few English money lenders.
+A\. No; owed by a few fast Egyptians to a few English money lenders.
 
-Q. Anything else?
+Q\. Anything else?
 
-A. Yes; desire of a few Englishmen to run Egypt on high salaries.
+A\. Yes; desire of a few Englishmen to run Egypt on high salaries.
 
-Q. What interest has Mrs. Dustepanne, lodging-house keeper, No. 14 Tottenham Court Road, London, in all this row?
+Q\. What interest has Mrs. Dustepanne, lodging-house keeper, No. 14 Tottenham Court Road, London, in all this row?
 
-A. Not a pennyworth.
+A\. Not a pennyworth.
 
-Q. Who is Mrs. Dustepanne?
+Q\. Who is Mrs. Dustepanne?
 
-A. One of her majesty's ten thousand loyal and loving subjects engaged in keeping lodgings.
+A\. One of her majesty's ten thousand loyal and loving subjects engaged in keeping lodgings.
 
-Q. Had Smith, the grocer, No. 15 Museum Street, or Jones, the publican, next door, or Brown, the baker, No. 7 Bishop's Gate Street, any hand in the killing of the two hundred men, women, and children during the bombardment of Alexandria?
+Q\. Had Smith, the grocer, No. 15 Museum Street, or Jones, the publican, next door, or Brown, the baker, No. 7 Bishop's Gate Street, any hand in the killing of the two hundred men, women, and children during the bombardment of Alexandria?
 
-A. None at all.
+A\. None at all.
 
-Q. Yet all these are —
+Q\. Yet all these are —
 
-A. English taxpayers, English people, and parts of the English nation.
+A\. English taxpayers, English people, and parts of the English nation.
 
-Q. What is the part of the English fleet and army now to Egypt?
+Q\. What is the part of the English fleet and army now to Egypt?
 
-A. That of the overbearing bully who clubs the weaker party at the command of his employer.
+A\. That of the overbearing bully who clubs the weaker party at the command of his employer.
 
-Q. Who, then, in reality fired the guns which killed the two hundred men, women, and children in Alexandria?
+Q\. Who, then, in reality fired the guns which killed the two hundred men, women, and children in Alexandria?
 
-A. A few conceited English lords and grasping moneylenders.
+A\. A few conceited English lords and grasping moneylenders.
 
-Q. And Sir Garnet Wolseley and Admiral Seymour with army and fleet are —
+Q\. And Sir Garnet Wolseley and Admiral Seymour with army and fleet are —
 
-A. Bald policemen in uniform in the service of the strongest party.
+A\. Bald policemen in uniform in the service of the strongest party.
 
-Q. And what will the English parson do next Sunday?
+Q\. And what will the English parson do next Sunday?
 
-A. Pray for the success of her most Christian majesty's most Christian army and navy in Egypt.
+A\. Pray for the success of her most Christian majesty's most Christian army and navy in Egypt.
 
-Q. And what will happen to the apostolic-desended clergy-man of her most Christian majesty's Church of England if he does not so pray?
+Q\. And what will happen to the apostolic-desended clergy-man of her most Christian majesty's Church of England if he does not so pray?
 
-A. He will lose his place and his pay for preaching the religion of peace and good-will to men.
+A\. He will lose his place and his pay for preaching the religion of peace and good-will to men.
 
 > "A free man is one who enjoys the use of his reason and his faculties; who is neither blinded by passion, not hindered or driven by oppression, not deceived by erroneous opinions." — Proudhon.
 
@@ -172,7 +172,7 @@ New York City.
 To this excellent argument we should take no exceptions, if the State were what Mr. Putnam supposes it to be. In our answer to Mr. Ball we granted fully the right of individuals *and associations* to resist invasion. But the State is not a voluntary association for purposes of defence and protection. Were it so, Liberty would have no quarrel with it. The State, in its very nature, is a *compulsory* institution whose real purposes (whatever its pretensions) are offence and invasion; an institution to which all are forced to belong and which all are compelled to support. Mr. Putnam's argument, then, does not touch us in the least. But, even if it did, he would need no answer now. One of the early subscribers to Liberty, he has read it faithfully and to good purpose; so that, at first our critic, he is now our convert. Within a very few weeks he has publicly answered his own criticism. This he has done in the twenty-eighth chapter of a serial story called "Golden Throne," written by him for George Chainey's publication, "This World." We have not read the story as a whole, but, glancing over "This World" of July 8, our eye struck the passage referred to, and we at once resolved that the time had come to print Mr. Putnam's letter and allow him to reply to it himself. From this reply, which now follows, it will be seen that, in the enthusiasm of his new faith, he outstrips his teacher in opposition to the use of force.
 
 
-Our little party were happy, in spite of all their misfortunes. They were on a lonely shore in the midst of the mighty sea. It was seldom visited by man, and they might remain for years without a chance to escape. They saved as much as they could from the ship, which took its time about going to pieces as it swung upon the rocks. There was enough food to last them for several months, and no doubt they could find many means of support on the island itself. Most of their mechanical instruments were preserved; and they had the material for rude shelters. All went to work with a will. There was no lamenting. So long as they lived, so long would they make out to enjoy themselves.
+Our little party were happy, in spite of all their misfortunes. They were on a lonely shore in the midst of the mighty seA\. It was seldom visited by man, and they might remain for years without a chance to escape. They saved as much as they could from the ship, which took its time about going to pieces as it swung upon the rocks. There was enough food to last them for several months, and no doubt they could find many means of support on the island itself. Most of their mechanical instruments were preserved; and they had the material for rude shelters. All went to work with a will. There was no lamenting. So long as they lived, so long would they make out to enjoy themselves.
 
 "Here, we can build the republic of Plato," said Paddie. "Here, we can have Utopia, a model society. We are released from the world and all its cares and perplexities. We have no traditions to bind us. We can live the ideal."
 
@@ -194,7 +194,7 @@ I second the motion," said Blanche. "I don't propose to submit any longer. We st
 
 "We will call a meeting at early candlelight," said Paddie. "We haven't any meeting-house yet nor candles, but yonder grove will make a good temple. Now for supper."
 
-The meal was soon over, and the evening light flashing with gold spread through the beautiful forest and glittered afar out upon the tossing sea. Beneath the verdant canopy, the jolly company gathered to see what might be done toward the formation of a model republic.
+The meal was soon over, and the evening light flashing with gold spread through the beautiful forest and glittered afar out upon the tossing seA\. Beneath the verdant canopy, the jolly company gathered to see what might be done toward the formation of a model republic.
 
 "I have taken the liberty," said Paddie, "to draw up a few resolutions as a starting-point for our portentous undertaking. We now occupy a remarkable position in history. Let us be worthy of it. We are undisturbed by any of the precedents of the mistaken past. With boundless hope, we look forth into the future. We have the stored wisdom of the ages for our guide, besides our own untrammeled reason. We wish to build a state that shall be a joy to those who come after us, that shall be a monument of human ingenuity. In the first place let it be distinctly understood that we will have no church with state. The church is an individual matter, and all can suit themselves; they can have whatever style they wish. They can worship or not worship, according to the dictates of their own conscience. We want something simply for human convenience, by which we can live happily together and obtain the most from our mutual endeavor. Is not this the mind of all?"
 
