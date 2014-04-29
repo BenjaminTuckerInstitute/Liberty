@@ -6,7 +6,7 @@ The woman suffragists of Boston met at Mrs. Fenno Tudor's a few days ago, and vo
 
 Literature is about to be enriched by an unexpected treasure. Proudhon's family lately discovered among the manuscripts of that celebrated publicist a posthumous work, entitled, "Ceasarian and History." It is already in press, and will doubtless be before the public in a very short time. The eagerness with which the people of Continental Europe buy and read the works of Proudhon is highly creditable to them, and it will not be our fault if, before many years, the English speaking-peoples do not have a chance to similarly honor themselves. Neither France nor the whole world can cherish too carefully every word that was written by him whom the next century will probably rank as the foremost man of this.
 
-General Ben Butler has the reputation of possessing a large amount of cheek, but he is by no means the cheekiest of the candidates for governor between whom Massachusetts voters are to choose this fall. The palm in that respect is unquestionably borne off by the most honest and estimable of them all, Charles Almy, of New Bedford, the candidate of the Prohibitory party, who, with an unapproachable sublimity of inconsistency, declares, in a letter accepting the nomination of a party which proposes to decide what men shall and shall not drink, that "the minimum of organized government and the maximum of self-government is to be encouraged." This is vir tually a proposition to encourage men to govern themselves by prohibiting them from doing so, and is a fine specimen of the humors of politics.
+General Ben Butler has the reputation of possessing a large amount of cheek, but he is by no means the cheekiest of the candidates for governor between whom Massachusetts voters are to choose this fall. The palm in that respect is unquestionably borne off by the most honest and estimable of them all, Charles Almy, of New Bedford, the candidate of the Prohibitory party, who, with an unapproachable sublimity of inconsistency, declares, in a letter accepting the nomination of a party which proposes to decide what men shall and shall not drink, that "the minimum of organized government and the maximum of self-government is to be encouraged." This is virtually a proposition to encourage men to govern themselves by prohibiting them from doing so, and is a fine specimen of the humors of politics.
 
 The Providence "Journal" gave the last number of Liberty a half-column of attention, for which we are its debtor. Among other comments, it said, after quoting some of our criticisms of the State: "We do not think that the Rhode Island 'reformers' are quite educated up to this standard." How this may be we do not know. The "Journal" ought to be better posted than ourselves concerning the educational status of Rhode Island reformers. But this we can say,— that, after Massachusetts, Rhode Island is the banner state on our subscription list, and that no other city in the Union takes as many copies of Liberty as Providence itself. We are rapidly developing Anarchists in Little Rhody's bosom, and creating a constituency of very lively neighbors for the arrogant thieves who rule her through the columns of the "Journal."
 
@@ -22,13 +22,13 @@ Liberty makes the following offers to new subscribers only, and in so doing affo
 
 To each new subscriber sending us
 
-### FIFTY CENTS,
+### Fifty Cents,
 
 the regular subscription price of the paper, we will send Liberty for one year and a copy of the first volume of John Ruskin's Letters to Workmen and Laborers, entitled, "Fors Clavigera."
 
 To each new subscriber sending us
 
-### ONE DOLLAR,
+### One Dollar,
 
 we will send Liberty for one year and a copy of each of the following works:—
 
@@ -40,7 +40,7 @@ we will send Liberty for one year and a copy of each of the following works:—
 
 To each new subscriber sending us
 
-### ONE DOLLAR AND A HALF,
+### One Dollar and a Half,
 
 we will send Liberty for one year, and, in addition to the works above mentioned, a copy of each of the following:—
 
@@ -52,7 +52,7 @@ we will send Liberty for one year, and, in addition to the works above mentioned
 
 To each new subscriber sending us
 
-### TWO DOLLARS,
+### Two Dollars,
 
 we will send Liberty for one year, all the works above mentioned, and a copy of each of the following:—
 
@@ -62,7 +62,7 @@ we will send Liberty for one year, all the works above mentioned, and a copy of 
 
 To cap the climax, to each new subscriber sending
 
-### THREE DOLLARS AND A HALF,
+### Three Dollars and a Half,
 
 we will send Liberty for one year, all the works already mentioned, and a full set of the
 
@@ -78,7 +78,7 @@ We have for sale three handsomely-bound copies of the first volume of Liberty. A
 
 It is gratifying to be informed, as we have been, by many of our patrons now renewing their subscriptions that they have already come to see plainly what we are driving at and are more and more deeply interested to follow us.
 
-When our little sheet was first sent out to do battle for reform we naturally expected to be immediately confronted by such superficial objections as these: "You are subversive of law and order;" "your system invites complete social chaos;" "you destroy without offering anything upon which to build anew;" "you offer nothing in the place of government" "you are all sail and no compass," etc. Of course no keen student of social science could descend to such unscientific objections, but a littlereform sheet like Liberty has not chiefly to deal with trained students of sociology, but with the average citizen of a "practical" world.
+When our little sheet was first sent out to do battle for reform we naturally expected to be immediately confronted by such superficial objections as these: "You are subversive of law and order;" "your system invites complete social chaos;" "you destroy without offering anything upon which to build anew;" "you offer nothing in the place of government;" "you are all sail and no compass," *etc*. Of course no keen student of social science could descend to such unscientific objections, but a littlereform sheet like Liberty has not chiefly to deal with trained students of sociology, but with the average citizen of a "practical" world.
 
 Not a few of our readers, however, are already beginning to see that so far from being subversive of law and order are we that our mission is really to establish law and order in the place of the prevailing social chaos which goes by that name. There is no such frivolous catch-word in the air to-day to gull the weak and unwary as this canting whine of "law and order." Law! yes: but what law? The law of nature as developed out of a rational analysis of social forces and based upon the sovereignty of the individual, or some law manufactured for designing ends before we were born and without our consent? ls law a thing to be enacted by rogues in caucus, and executed by force upon the unwilling, or is law a principle of nature,— a thing that is, and that cannot be made. As brave old Lysander Spooner says, it is absurd to talk about "making" laws. Laws are, and the only right of a human being is to search after them and obey them for himself, leaving others to do the same, or contrarywise, at their own cost.
 
