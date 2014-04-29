@@ -70,7 +70,7 @@ we will send Liberty for one year, all the works already mentioned, and a full s
 
 Thus we offer, besides an annual subscription to this paper, *a library of twenty standard volumes for $3.50*. And these books, remember, are not issued in trashy form, but printed from good type, on clear white paper, and bound in fine postal-card manila,— books as durable as the average workingman can afford to own until the doctrines of Liberty shall be realized, after which he *alone* will be able to dress his favorite authors in gilt leaves and morocco covers.
 
-﻿## Bound Volumes of Liberty.
+## Bound Volumes of Liberty.
 
 We have for sale three handsomely-bound copies of the first volume of Liberty. As the number who desire them is large, we have determined, not as a matter of equity, but as a means of voluntary taxation of those best able to give us a helping hand, to award the volumes to the three persons sending in the highest bids for them prior to the next issue of the paper. At that time the successful bidders will be notified, and, on receipt of the sums offered, the books will be forwarded.
 
@@ -226,7 +226,7 @@ No more laws, no more judges! Liberty, Equality, and the practice of Solidarity 
 
 The idea of the nationalization of the soil is only a compromise between private property and socialism. The soil is to be proclaimed national property (reimbursing the landlords, say the authors of the idea,— without reimbursing them, say the workingmen). The State, which is to be manager, is to rent it to such as desire to cultivate it themselves, and this rent is to replace taxation. This, then, would be an introduction of the same system that exists in certain portions of the English Indies (which does not prevent the cultivators of the soil from dying of hunger by millions), or else in Siberia, where also the land belongs to the State and is rented to the communes, which nevertheless are ruined by taxes and officials. The idea itself is not worth much. But what interests us is the fact that this idea of dispossession of the landlords is approved by large numbers of people, even in the ranks of the *bourgeoisie* and the well-to-do classes generally. Its progress may almost be said to be visible to the eye.
 
-﻿## Henry George Examined.*
+## Henry George Examined.\*
 
 ### Should Land be Nationalized or Individualized?
 
@@ -342,6 +342,6 @@ J. — I was about to say that is untrue. Every individual needs a place to live
 
 There exists no reason why any one *should hire* a home which does not apply with greater force to the reasons why he should own it. Even a single room can be owned, since it can be hire. Requiring to change his residence, one would experience no more difficulty in finding a purchaser than would the landlord (nation or township) in finding a tenant for it. *Any disposition of the land which does not embrace the private ownership of home* and the normal environment of the individual will not be the final one. Under that, even the changeful and migratory would find no serious inconvenience, which the many would enjoy, in its security and stability, a permanent reliance, and in its healthful stimulus, the noblest incentives to beautify and adorn the limited portion falling to their control.
 
-* The introductory portion of this article, preceding the dialogue, appeared originaly in the "Irsih World." The remainder was offered to the editor of that paper, but rejected by him. — Editor Liberty.
+\* The introductory portion of this article, preceding the dialogue, appeared originaly in the "Irsih World." The remainder was offered to the editor of that paper, but rejected by him. — Editor Liberty.
 
-* See Henry George in "Irish World" for August 26.
+\* See Henry George in "Irish World" for August 26.
