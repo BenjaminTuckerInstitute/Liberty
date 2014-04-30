@@ -1,3 +1,11 @@
+> "For always in thine eyes, O Liberty!
+>
+> Shines that high light whereby the world is saved;
+>
+> And though thou slay us, we will trust in thee."
+
+John Hay.
+
 ## On Picket Duty.
 
 Road Liberty's splendid offer of premiums to new subscribers in another column. "Leaves of Grass" is now sold openly by nearly all the Boston booksellers. We have won our victory, and the "guardians of Massachusetts morality" have ignominiously retreated. This is well; but much trouble would have been saved, if the cowardly Osgoods had only stood up in their shoes, instead of surrendering without a struggle.
@@ -69,6 +77,8 @@ we will send Liberty for one year, all the works already mentioned, and a full s
 **Popular History of England:** A History of Society and Government from the Earliest Period to Our Own Times. By Charles Knight. Complete in Eight volumes. 4to, manila.
 
 Thus we offer, besides an annual subscription to this paper, *a library of twenty standard volumes for $3.50*. And these books, remember, are not issued in trashy form, but printed from good type, on clear white paper, and bound in fine postal-card manila,— books as durable as the average workingman can afford to own until the doctrines of Liberty shall be realized, after which he *alone* will be able to dress his favorite authors in gilt leaves and morocco covers.
+
+> "A free man is one who enjoys the use of his reason and his faculties; who is neither blinded by passion, not hindered or driven by oppression, not deceived by erroneous opinions." — Proudhon.
 
 ## Bound Volumes of Liberty.
 
