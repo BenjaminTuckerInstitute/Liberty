@@ -101,7 +101,7 @@ No, it is purity,—purity and nothing more. Purity may mean all things to all m
 
 So with the terms justice, truth, virtue, and the term morality itself. Our Liberal friends fail to define these expressions, and for the simple reason that they cannot. They have no rational starting-point from which to develop the true theory of human relations. Justice is what some authority has defined it to be, ratified by public opinion. Truth, paradoxically speaking, is a vague fiction. Virtue is the dogmatic fiat of popularized asceticism, whoso dictum is total abstinence; and morality is majority-rule, meddling despotically with everybody's business.
 
-Now, we earnestly invite all these Liberal wanderers, at present intellectually lost in the woods, to come into the folds of Liberty. Here they will find a distinct rational philosophy that settles the significance of all their vague terms. For we have a starting-point that is unassailable,—the absolute sovereignty of every individual. Upon this rock we build, and all our social structure in morals and ???ity[FIXME: dignity? sanity?] is securely braced by the cost-principle. Those who inhabit it always know where they stand and I how to treat all questions of social conduct. Their philosophy and method cannot fail to be Liberal, being the very science of Liberty itself. Those already on the anxious seat would do well to come forward at once. The burden of Liberty is light, its yoke is easy to hear, and priceless are its blessings.
+Now, we earnestly invite all these Liberal wanderers, at present intellectually lost in the woods, to come into the folds of Liberty. Here they will find a distinct rational philosophy that settles the significance of all their vague terms. For we have a starting-point that is unassailable,—the absolute sovereignty of every individual. Upon this rock we build, and all our social structure in morals and dignity is securely braced by the cost-principle. Those who inhabit it always know where they stand and I how to treat all questions of social conduct. Their philosophy and method cannot fail to be Liberal, being the very science of Liberty itself. Those already on the anxious seat would do well to come forward at once. The burden of Liberty is light, its yoke is easy to hear, and priceless are its blessings.
 
 ## That "Unearned Increment."
 
@@ -164,7 +164,7 @@ But the czar, who sees himself so irremissibly condemned that he goes to chapel,
 
 This picture of the anguish of a potentate scarcely daring to take possession of the crown is the best reward that the revolutionists have yet received for their sacrifices and their perils. To make the life of kings so intolerable as to disgust them with their royalty,—that perhaps is the best method yet discovered of founding republics.
 
-Proof, for the rest, that the august ???s[FIXME] of Moscow intend to treat their condemned criminals in the future with a certain degree of humanity may be found in this further despatch transmitted by the Havas agency:
+Proof, for the rest, that the augustes of Moscow intend to treat their condemned criminals in the future with a certain degree of humanity may be found in this further despatch transmitted by the Havas agency:
 
 "The day of the coronation is kept absolutely secret."
 
@@ -253,7 +253,7 @@ It is very pretty, writes Henry Maret, the brilliant and witty journalist who ed
 
 ## Whitman's Music and the Lute.
 
-## Links to Walt Whitman.
+### Links to Walt Whitman.
 
 *Being a Plea Against the Good Gray Poet's Lawless Paces.*
 
@@ -261,96 +261,80 @@ It is very pretty, writes Henry Maret, the brilliant and witty journalist who ed
 
 > Wherefore scorn the tuneful measure
 >
->> Like a lout?
+> Like a lout?
 >
 > Drowning Art's melodious pleasure
 >
->> In a shout?
->
-
+> In a shout?
 >
 
 > As the Mœnads corybantie
 >
->> Used to wound
+> Used to wound
 >
 > Beauty's eyelids, in their frantic
 >
->> Reckless round?
-
->
+> Reckless round?
 
 > Must not every Muse deny him
 >
->> For a churl,
+> For a churl,
 >
 > Who will hut-ward haste to hie him
 >
->>  From the whirl
-
->
+>  From the whirl
 
 > Of the rhythmic cadence, speeding
 >
->> On the dance,
+> On the dance,
 >
 > Lads and lassies gayly leading
 >
->> In its trance?
-
->
+> In its trance?
 
 > 'Tis not *cornu mirum's* blaring,
 >
->> Saturnine,
+> Saturnine,
 >
 > All their senses is ensnaring!
 >
->> But — the Nine!
-
->
+> But — the Nine!
 
 > Gliding feet and ringlets straying
 >
->> Touch and kiss;
+> Touch and kiss;
 >
 > Wavy swaying to such playing
 >
->> Is such bliss!
-
->
+> Is such bliss!
 
 > Vulcan's hammer clangs and clashes
 >
->> With a glow,
+> With a glow,
 >
 > But its splendors fall in ashes
 >
->> At each blow!
-
->
+> At each blow!
 
 > Gracefully his shafts
 >
->> Apollo Flings abroad;
+> Apollo Flings abroad;
 >
 > Ecstasy and glory follow
 >
->> The Sun-God!
-
->
+> The Sun-God!
 
 > Him — the old Eternal Warder,
 >
->> The most High,
+> The most High,
 >
 > Set, with Time and Rhyme, to order
 >
->> Earth and Sky!
+> Earth and Sky!
 
 * * *
 
-## Lines to Sam Ward.
+### Lines to Sam Ward.
 
 *Being a Plea Against the Lascivious Playing of a Lute.*
 
@@ -358,89 +342,73 @@ It is very pretty, writes Henry Maret, the brilliant and witty journalist who ed
 
 > Therefore, chant the Lydian measures,
 >
->> Mi, sol, fa.
+> Mi, sol, fa.
 >
 > Man the monkey always treasures,
 >
->> La di da.
-
->
+> La di da.
 
 > Rare enough the rush intruding
 >
->> Of the few.
+> Of the few.
 >
 > Swarms the graceful hoop-de-dooden,
 >
->> Doo-den-do.
-
->
+> Doo-den-do.
 
 > Not to played the ancient player
 >
->> On the strings;
+> On the strings;
 >
 > Neither David nor Isaiah
 >
->> That way sings.
-
->
+> That way sings.
 
 > When the soul had songs of passion
 >
->> To the Lord,
+> To the Lord,
 >
 > Whimpering was not the fashion —
 >
->> "No!" he roared.
-
->
+> "No!" he roared.
 
 > With the wrongs upreared gigantic
 >
->> Of the race,
+> Of the race,
 >
 > Not indeed were strophes bacchantic
 >
->> Then his pace.
-
->
+> Then his pace.
 
 > Silent heat Apollo reigneth
 >
->> All undoing,
+> All undoing,
 >
 > With his thunder-crash obtaineth
 >
->> Our renewing.
-
->
+> Our renewing.
 
 > Every inch the lowly maketh
 >
->> Is a fight.
+> Is a fight.
 >
 > Every shout of victory shaketh
 >
->> Men aright.
-
->
+> Men aright.
 
 > Every song that won the nations,
 >
->> Clarion rang.
+> Clarion rang.
 >
 > Every song that outraged patience,
 >
->> Chamberers sang.
-
->
+> Chamberers sang.
 
 > When the heart its longing chaunteth
 >
->> On the rack,
+> On the rack,
 >
 > Is the one thing that it wanteth
 >
->> Bric-a-brac?
+> Bric-a-brac?
 
