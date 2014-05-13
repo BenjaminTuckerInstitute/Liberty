@@ -6,7 +6,7 @@
 
 John Hay.
 
-﻿## On Picket Duty.
+## On Picket Duty.
 
 P. J. McGuire's paper, "The Carpenter," has been removed from New York, and will hereafter be published at 613 Callowhill Street, Philadelphia.
 
