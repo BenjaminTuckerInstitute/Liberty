@@ -8,7 +8,7 @@ John Hay.
 
 ## On Picket Duty.
 
-P. J. McGuire's paper, "The Carpenter," has been removed from New York, and will hereafter be published at 613 Callowhill Street, Philadelphia.
+P\. J\. McGuire's paper, "The Carpenter," has been removed from New York, and will hereafter be published at 613 Callowhill Street, Philadelphia.
 
 Society may do what it pleases, and the individual may do what he pleases if society pleases to let him, say the State Socialists. Liberty says that the Individual may do what he pleases, and society may do what it pleases if the individuals comprising the society please to let it. Between these two positions there can be neither peace nor compromise.
 
@@ -18,8 +18,7 @@ Walt Whitman is an economist as well as a poet,— age of the right and radical 
 
 The Rechester "Sunday Morning Mail," referring to Henry Appleton ("Honorius" of the "Irish World"), says that he is "one of the best educated and clearest writers upon the social questions of the day. He is cool, deliberating, and convincing. He is a fitting companion for Henry Carey Baird and the great Parnell. His reputation is destined to become a household word." Coming from such a source, this intended compliment is a rather doubtful one. A paper which holds up the writings of Henry Carey Baird and Parnell as standards of lucidity does not know what clear thought is. Mr. Appleton is a far clearer thinker and more vigorous writer than either of them; and the "Mail," in reducing him to their level, does him an injury which Liberty promptly resents in his behalf.
 
-Mr. Van Patten, editor of the "Bulletin of the Social Labor Movement" and champion of extreme State Socialism, has been analyzing Liberty in his paper. "Liberty," he says, "is a natural right, against which constraint can exercise no legitimate power." But he thinks that this right terminates where the liberty of others begins. From this he concludes that "personal Liberty must always be subordinate to the collective liberty." Let us carry this peculiar argument a little farther. If "personal Liberty must *always* be subordinate to the collective liberty," it may *always* be legitimately constrained, and hence the termination of this "natural right,"
-which Mr. Van Patten starts by defining as one which can never be legitimately constrained, must be simultaneous with its beginning. Well may Liberty exclaim: "If so soon I was to be done for I wonder what I was begun for."
+Mr. Van Patten, editor of the "Bulletin of the Social Labor Movement" and champion of extreme State Socialism, has been analyzing Liberty in his paper. "Liberty," he says, "is a natural right, against which constraint can exercise no legitimate power." But he thinks that this right terminates where the liberty of others begins. From this he concludes that "personal Liberty must always be subordinate to the collective liberty." Let us carry this peculiar argument a little farther. If "personal Liberty must *always* be subordinate to the collective liberty," it may *always* be legitimately constrained, and hence the termination of this "natural right," which Mr. Van Patten starts by defining as one which can never be legitimately constrained, must be simultaneous with its beginning. Well may Liberty exclaim: "If so soon I was to be done for I wonder what I was begun for."
 
 "At a certain manufactory in this city," says the Fall River correspondent of the Providence "Journal," "where there are a number of young ladies employed, it was determined on their part to present their employer with an album and a large family Bible as a testimonial of their regard for him. The money was collected and the articles purchased. On the appointed alter noon the girls collected at the office of their employer, and, in a neat speech, presented him with their offering. The recipient accepted the gifts and thanked the givers in a few choice words. After conversing some time, tho overseer glanced at the clock, and said: 'Girls, I think you had better go back to your work now; you have lost three-quarters of an hour already.' The girls were taken aback, and, feeling much disconcerted, went back to their work, but great was their surprise and chagrin when the next pay-day came round to find that the overseer had 'docked' every one of them for the time lost in making the presentation." Served them right! Factory operatives who know no better than to use the little that is left of their earning after the bulk of them have been, stolen, in buying presents for the thieves, deserve to have insult added to injury.
 
@@ -288,7 +287,7 @@ It is very pretty, writes Henry Maret, the brilliant and witty journalist who ed
 
 *Being a Plea Against the Good Gray Poet's Lawless Paces.*
 
-[Sam Ward in New York "World."]
+### [Sam Ward in New York "World."]
 
 > Wherefore scorn the tuneful measure
 >
@@ -369,7 +368,7 @@ It is very pretty, writes Henry Maret, the brilliant and witty journalist who ed
 
 *Being a Plea Against the Lascivious Playing of a Lute.*
 
-[Byrne's Dramatic Times.]
+### [Byrne's Dramatic Times.]
 
 > Therefore, chant the Lydian measures,
 >
@@ -442,4 +441,3 @@ It is very pretty, writes Henry Maret, the brilliant and witty journalist who ed
 > Is the one thing that it wanteth
 >
 > Bric-a-brac?
-
