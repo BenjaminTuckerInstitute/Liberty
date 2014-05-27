@@ -6,7 +6,7 @@
 
 John Hay.
 
-﻿## On Picket Duty.
+## On Picket Duty.
 
 The truest and most important thing said by General Butler during his recent campaign for the governorship was this: "You hear about men making money; they get it away from each other. It is all produced from the soil at first." This is a simple, plain, and forcible way of saying that interest, rent, and profit are dishonest abstractions from the pockets of labor.
 
