@@ -62,11 +62,11 @@ Prove to me direct complicity, show me facts establishing actual participation i
 
 Since that time we have travelled far and done much. We have accomplished three or four revolutions, overturned, repealed, and constructed an enormous number of laws, constitutions, and governments, swept away two monarchies, and we are now in our second republic. It has lasted twelve years. But, in the matter of liberalism, wc are still very far behind the English judge and M. Cousin. "Moral complicity," that monstrous legal infamy invented by the doctrinaires of the Restoration and revived, in the face of the indignant outery of all Europe, by Attorney-General Hebert,— "moral complicity" has remained in our codes. It still sullies them, and is about to be invoked against journalists and orators, as in the days of the state of siege and military tribunals.
 
-Emile Gautier\* is prosecuted — I pass in silence the stupid charge of affiliation with the International — for provocation, through the press, to trie crimes of pillage, incendiarism, etc., the provocation having been followed by results.
+Emile Gautier\*\* is prosecuted — I pass in silence the stupid charge of affiliation with the International — for provocation, through the press, to trie crimes of pillage, incendiarism, etc., the provocation having been followed by results.
 
 Jules Guesde, Paul Lafargue, and Bazin\* our friends of "L'Egalité," are charged with provocation, from the platform, to I know not what other crimes, the provocation, in this instance, not having been followed by results.
 
-In both cases stupidity vies with lmscness.
+In both cases stupidity vies with baseness.
 
 What has Gautier said? They do not even know whether he is the author of the articles complained of. I admit that he is. He has said, I admit further, that it is the right of the poor to sweep down upon capital and take by main force tools and workshops and lands and houses and the wealth contained in them, and that, to achieve this legitimate conquest, every weapon is good,— sword and fire and dynamite.
 
@@ -86,7 +86,7 @@ These pretty things have been in the code since 1819. The Republic has left them
 
 *One of the most prominent Anarchists in Paris.
 
-*Three leading French Socialists of the Karl Marx school.
+\*\*Three leading French Socialists of the Karl Marx school.
 
 ## If So, Why?
 
