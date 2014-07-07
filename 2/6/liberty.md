@@ -138,7 +138,7 @@ Whether the Austrian emperor shoots or condemns to slow death in the galleys our
 
 ## A Warning to the Blind. 
 
-#### [Henry Maret in "Le Radical."] 
+### [Henry Maret in "Le Radical."] 
 
 We have reached an epoch when it is highly imprudent for the governing and well-to-do classes to deny social questions and ignore the wretched, from whom they have taken away heaven and to whom they refuse the earth. All such partial outbreaks as the Montceau-les-Mines troubles are not very disquieting in themselves, but they are precursory signals. The great earthquakes which engulf cities are generally preceded by slight upheavals and lugubrious rumblings. It will not do to exclaim tranquilly: "Bah! we will end the matter with a few gendarmes." There will come a day when the gendarmes will be lacking and when misery will raise everywhere its immense black flag. 
 
