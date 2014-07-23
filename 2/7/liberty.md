@@ -1,4 +1,4 @@
-﻿> "For always in thine eyes, O Liberty!
+> "For always in thine eyes, O Liberty!
 >
 > Shines that high light whereby the world is saved;
 >
