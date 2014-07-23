@@ -16,7 +16,7 @@ The trial began on Monday, January 8, before three judges, the offense of affili
 
 *Bordat.* — These statements are inaccurate. But the acts at Montceau were legitimate because the *bourgeoisie* provoked them. I approve what is called propagandism by acts only when there is provocation on the part of the *bourgeoisie*.
 
-*District Attorney* — What do you mean by those words, "provocation on the part of the *bourgeoisie*"?
+*District Attorney.* — What do you mean by those words, "provocation on the part of the *bourgeoisie*"?
 
 *Bordat.* — I mean such things as were done at Montceau, where they compelled workingmen to abstain from expressing their political and religious opinions.
 
@@ -44,7 +44,7 @@ In the examination of Emile Gautier, one of the most active of the Anarchists, t
 
 *The Court.* — You have advocated revolution?
 
-*Gautier.* — I am of those who think that the social transformation of which we dream and from which justice must result cannot be accomplished without revolution. That is a fact which I establish, history in hand. I consider the acts at Montceau as precursory signals of revolution. When one secs euch cracking in the social structure, its downfall is near. Jut; as the revolution of '93 was preceded by three hundred minor riots, so the social revolution will be preceded by numerous disturbances. Never does the thunderbolt leap from a cloudless sky. Wc belong to an international party, as we have a right to do, but not to an established association.
+*Gautier.* — I am of those who think that the social transformation of which we dream and from which justice must result cannot be accomplished without revolution. That is a fact which I establish, history in hand. I consider the acts at Montceau as precursory signals of revolution. When one sees such cracking in the social structure, its downfall is near. Just as the revolution of '93 was preceded by three hundred minor riots, so the social revolution will be preceded by numerous disturbances. Never does the thunderbolt leap from a cloudless sky. Wc belong to an international party, as we have a right to do, but not to an established association.
 
 *The Court.* — Do you admit that you have held relations with Elisée Reclus?
 
@@ -122,7 +122,7 @@ The court then asked Kropotkine about his journeys to Lyons and Vienna before he
 
 *Kropotkine.* — I am really astonished at being asked this question and not what I went to Lyons for, since my arrest was in consequence of the events that occurred in this city.
 
-*The Court* (confused). — What did you go to Lyons for?
+*The Court.* (confused). — What did you go to Lyons for?
 
 *Kropotkine.* — To talk about Anarchy in a *café* to a meeting of two hundred persons.
 
@@ -160,7 +160,7 @@ Next came Nicolas Didelin.
 
 *Didelin.* — The men of 1871 had sustained a terrible siege, and wished, on the contrary, to found the Republic.
 
-*The Court* (continuing to interrupt). — I see that there are people in this hall who agree with you; the tribunal is not of your opinion. Let us drop this subject, then.
+*The Court.* (continuing to interrupt). — I see that there are people in this hall who agree with you; the tribunal is not of your opinion. Let us drop this subject, then.
 
 In conclusion Didelin declared that the officer who arrested him insulted him and treated him in a cowardly manner.
 
@@ -190,15 +190,15 @@ The defence began January 12 with the reading by Tressaud of the following manif
 
 "They will learn, likewise, to live without proprietors. The worst of tyrants, indeed, is not he who imprisons you, but he who starves you; not he who takes you by the collar, but he who takes you by the stomach.
 
-"No liberty without equality! No liberty in a society where capital is monopolized in the hands of a minority which grows smaller every day, and where nothing is evenly distributed, not even public education, though paid for by every, body's mite.
+"No liberty without equality! No liberty in a society where capital is monopolized in the hands of a minority which grows smaller every day, and where nothing is evenly distributed, not even public education, though paid for by everybody's mite.
 
 "We believe, for one part, that capital — the common patrimony of humanity, since it is the fruit of the labors of past and present generations — should be put at the disposition of all in such a way that no one may be excluded from its use, and that no one, on the other hand, may monopolize a portion to the detriment of the rest.
 
-"In short, we wish equality, real equality, as a corollary, or rather, a primary condition of liberty. From each according to his abilities, to euch according to his needs; that is what we wish, sincerely, energetically; that is what will come, for no prescription can prevail against claims at once legitimate and necessary. That is why they wish to stigmatize us in every possible way.
+"In short, we wish equality, real equality, as a corollary, or rather, a primary condition of liberty. From each according to his abilities, to each according to his needs; that is what we wish, sincerely, energetically; that is what will come, for no prescription can prevail against claims at once legitimate and necessary. That is why they wish to stigmatize us in every possible way.
 
 "Rascals that we are! We demand bread for all, knowledge for all, work for all; for every person also independence and justice."
 
-No witnesses were called by the defence, but the prisoners in turn defended themselves, some by counsel, some by their own lips. One of them, Joseph Bernard, said that no evidence having been offered to connect him with the International, he should confine himself to answering the attacks upon his socialistic theories. Then he eloquently depicted the vices of existing society, and laid bare its monstrous iniquities. "The economist, J. B. Say, says that labobers are condemned to perpetual misery, and that there are only certain circumstances which permit them to improve their condition. Do you know what those circumstances are? Well, never have I dared to say it in my speeches, I a revolutionist! and yet they are plainly stated in the great economist's work on political economy,— fire and pillage. They accuse us of wishing crime; but the present society has killed millions of laborers. Is not the real criminal the man who sustains its unhealthy organization? We wish no crime, since we wish no more war; we do not wish to kill the *bourgeois*, but only to put them in a position where they will have to produce to satisfy their wants" Bernard then explained that the Revolution does not mean brute force placed at the service of insurrection, but the transformation of society, and concluded by saying that whatever the sentence that awaited him, he would recommence that which he had done, and that, when the workingmen should go down into the streets to put an end to the miserable conditions-under which they live, he would be with them.
+No witnesses were called by the defence, but the prisoners in turn defended themselves, some by counsel, some by their own lips. One of them, Joseph Bernard, said that no evidence having been offered to connect him with the International, he should confine himself to answering the attacks upon his socialistic theories. Then he eloquently depicted the vices of existing society, and laid bare its monstrous iniquities. "The economist, J. B. Say, says that laborers are condemned to perpetual misery, and that there are only certain circumstances which permit them to improve their condition. Do you know what those circumstances are? Well, never have I dared to say it in my speeches, I a revolutionist! and yet they are plainly stated in the great economist's work on political economy,— fire and pillage. They accuse us of wishing crime; but the present society has killed millions of laborers. Is not the real criminal the man who sustains its unhealthy organization? We wish no crime, since we wish no more war; we do not wish to kill the *bourgeois*, but only to put them in a position where they will have to produce to satisfy their wants" Bernard then explained that the Revolution does not mean brute force placed at the service of insurrection, but the transformation of society, and concluded by saying that whatever the sentence that awaited him, he would recommence that which he had done, and that, when the workingmen should go down into the streets to put an end to the miserable conditions-under which they live, he would be with them.
 
 On January 13 Emile Gautier was heard. He spoke as follows:—
 
@@ -210,7 +210,7 @@ On January 13 Emile Gautier was heard. He spoke as follows:—
 
 "Or rather, I mistake; it has existed for three months by virtue of this prosecution, and yesterday it issued, armed and equipped, from the brain of the government's attorney, as Minerva issued from the brain of Jupiter. I did not imagine that justice had the power to resuscitate the dead.
 
-"I am going to tell you what does exist. There are citizens of different nationalities who have the same thoughts, and who grasp hands over tho frontiers from North to South and from East to West. There are individuals and multitudes who hold ideas in common. I am of these great criminals who think that the government has nothing to do with the distribution of my friendships. The question now is whether in this country of France it is permissible to entertain friendly relations with foreigners. Now, among the foreigners with whom I am reproached for entertaining relations, there is a Frenchman, Elisée Reclus, who by his talent and his character honors his country. If this man is so disorderly that one cannot shake hands with him and remain guiltless, why is he not here? Why have I not met him in any jail during my tour of the penitentiary world in eighty days?
+"I am going to tell you what does exist. There are citizens of different nationalities who have the same thoughts, and who grasp hands over the frontiers from North to South and from East to West. There are individuals and multitudes who hold ideas in common. I am of these great criminals who think that the government has nothing to do with the distribution of my friendships. The question now is whether in this country of France it is permissible to entertain friendly relations with foreigners. Now, among the foreigners with whom I am reproached for entertaining relations, there is a Frenchman, Elisée Reclus, who by his talent and his character honors his country. If this man is so disorderly that one cannot shake hands with him and remain guiltless, why is he not here? Why have I not met him in any jail during my tour of the penitentiary world in eighty days?
 
 "It was my right to see this grand patriot, as it was Rochefort's right to receive Parnell, Gambetta's to be the friend of the Prince of Wales, Grévy's to greet Kalakaua, king of the Sandwich Islands, as ‘my cousin.'
 
@@ -218,19 +218,19 @@ On January 13 Emile Gautier was heard. He spoke as follows:—
 
 "Are not the Republicans who hold relations with men like Castelar, Parnell, and Bradlaugh guilty of internationalism?
 
-"Does not "Justice" number German socialistic deputies among its writers? Has not the "Intransigeant" published subscription lists from the socialists of Amsterdam and Rotterdam for the miners of Montceau-les-Mines?
+"Does not 'Justice' number German socialistic deputies among its writers? Has not the 'Intransigeant' published subscription lists from the socialists of Amsterdam and Rotterdam for the miners of Montceau-les-Mines?
 
 "Why, then, do they not prosecute the Legitimists, the Republicans, the Collectivists, and the Free Thinkers, and why do they reserve the thunders of the law for the Anarchism?
 
-"We are in the presence of a *procés de tendance*; the prosecution is against our opinions. The government's attorney has said that as long as there are any Anarchists left he will prosecute them. Well, I am going to tell you what Anarchism are."
+"We are in the presence of a *procés de tendance*; the prosecution is against our opinions. The government's attorney has said that as long as there are any Anarchists left he will prosecute them. Well, I am going to tell you what Anarchists are."
 
-Gautier then explained his views, which are but the application of absolute liberty. His well-chosen word charmed all present and convinced tho audience in the court-room. The studede magistrates listended with profound attention to the prisoner as he delivered the following peroration:
+Gautier then explained his views, which are but the application of absolute liberty. His well-chosen word charmed all present and convinced the audience in the court-room. The studede magistrates listended with profound attention to the prisoner as he delivered the following peroration:
 
 "They reproach us for excusing insurrection, but are not governments guilty of the same office? Is there not in Paris a column commemorative of victorious insurrection? Is not the national festival of the Fourteenth of July the glorification of insurrection?
 
 "You, gentlemen, who sit at this tribunal you are insurgents, since you judge us to-day in the name of the Republic which overthrew the imperial monarchy. If Bazaine had been in Paris September 4, you would now be judging us in the name of the emperor.
 
-"On entering you deliberative chamber you will say to yourselves, gentlemen, that these fifty-two workmen, sho have been so long in prison awaiting trial, have already paid sufficiently dearly for the right to have an opinion,— the only crime which you charge upon them,— and you will hasten to restore them to their families; for to condemn is not to reply, and there is no proscription which can save a worn-cat political system. Remember that in 1871, after the wicked hecatomb of thirty-five thousand Parisians, it was thought that seals had been placed upon the tomb of assassinated socialism, and to-day socialism is stronger than ever.
+"On entering you deliberative chamber you will say to yourselves, gentlemen, that these fifty-two workmen, who have been so long in prison awaiting trial, have already paid sufficiently dearly for the right to have an opinion,— the only crime which you charge upon them,— and you will hasten to restore them to their families; for to condemn is not to reply, and there is no proscription which can save a worn-out political system. Remember that in 1871, after the wicked hecatomb of thirty-five thousand Parisians, it was thought that seals had been placed upon the tomb of assassinated socialism, and to-day socialism is stronger than ever.
 
 "It will not be the condemnation of these fifty-two prisoners which will kill the Anarchistic party.
 
@@ -252,9 +252,9 @@ The most notable event of the trial occured on Januray 15, when Kropotkine spoke
 
 "Are not meeting of Italian and French Republicans frequently held in Paris? In the face of this prosecution of opinion, of the moment, and of a class, I have hesitated to defend myself, but above us there is a higher judge,— public opinion. For it I speak.
 
-" Certainly, it would have benn a very fine thing if we could have declared ourselves members of the Internation; but we cannot, because that grand association of the laborers of the entire world has not existed in France since the iniquitous law of 1872 destroyed it.
+"Certainly, it would have benn a very fine thing if we could have declared ourselves members of the Internation; but we cannot, because that grand association of the laborers of the entire world has not existed in France since the iniquitous law of 1872 destroyed it.
 
-"For my part, I should have been proud to confess that I belonged to the society of which the great patriot, Garibaldi, said: "It is the sun of the future."
+"For my part, I should have been proud to confess that I belonged to the society of which the great patriot, Garibaldi, said: 'It is the sun of the future.'
 
 "Never shall I consider it a crime to say to the laborers of two worlds: Laborers, when the *bourgeoisie* plunge you into misery, a truce to hatred; join hand across the frontiers; be brothers!
 
@@ -266,35 +266,35 @@ The most notable event of the trial occured on Januray 15, when Kropotkine spoke
 
 "So many legends have been related regarding me that I am forced, to my great regret, to give here a few details about my life.
 
-"My father was an owner of serfs, slaves, and from my infancy I had an opportunity to witness scenes like those of which you have read in that celebrated book, "Uncle Tom's Cabin." At that time I learned to love the oppresed, and took an oath never to side with the oppresors.
+"My father was an owner of serfs, slaves, and from my infancy I had an opportunity to witness scenes like those of which you have read in that celebrated book, 'Uncle Tom's Cabin.' At that time I learned to love the oppresed, and took an oath never to side with the oppresors.
 
 "Later I entered the school of the czar's pages; I saw the court the inside and learned to despise it.
 
 "That was in 1862. At that time a liberal wind was blowing through Russia, and reforms began to be talked of.
 
-"Having the privilege of choosing the corps in which I should serve, I did not hesitate to choose a regiment of Cossacks in Siberia, thinking that in that unhappy country I could labor for the reforms so much desired. I was the governor-general's aide-de-camp, and in that position did all the good I could. I was unsophisticated and believed that the government intended to execute reforms. the Polish insurrection broke out, and a terrible reaction followed. After two years I saw that the government dido not wish to do anything; I devoted myselft to science and travelled through Siberia.
+"Having the privilege of choosing the corps in which I should serve, I did not hesitate to choose a regiment of Cossacks in Siberia, thinking that in that unhappy country I could labor for the reforms so much desired. I was the governor-general's aide-de-camp, and in that position did all the good I could. I was unsophisticated and believed that the government intended to execute reforms. The Polish insurrection broke out, and a terrible reaction followed. After two years I saw that the government did not wish to do anything; I devoted myself to science and travelled through Siberia.
 
 "Finally I left Siberia, and at the age of twenty-six took my seat upon the benches of the mathematical faculty at St. Petersburg. During the four years that I remained there, a great socialistic movement developed itself.
 
-"In 1873 the government arrested me and my brother, and I spent two years and a half in prison. My brother, who had been authorized by a special decree of the emperor to finish a geographical work on siberia, succeeded in publishing the first volume; the second remained in the hand of the jailers. In that prison I heard above me the cries of the unfortunates who had gone mad, and I suffered doubly. Nine of my companions became insane. Eleven committed suicide. At the end of two years, scurvy and dyspepsia having got the better of me, I was removed to a hospital, whence I escaped. My comrades remained in prison four years without a trial, and were judged in the famous trail of the one hundred and ninety-three.
+"In 1873 the government arrested me and my brother, and I spent two years and a half in prison. My brother, who had been authorized by a special decree of the emperor to finish a geographical work on Siberia, succeeded in publishing the first volume; the second remained in the hand of the jailers. In that prison I heard above me the cries of the unfortunates who had gone mad, and I suffered doubly. Nine of my companions became insane. Eleven committed suicide. At the end of two years, scurvy and dyspepsia having got the better of me, I was removed to a hospital, whence I escaped. My comrades remained in prison four years without a trial, and were judged in the famous trail of the one hundred and ninety-three.
 
 "In Switzerland, to which I came under the name of Levachoff, I found the working people in the same situation. Everywhere I saw the same wretchedness. I have seen great manufacturing towns where the childern had only dirty and bad-smelling courts to play in. I have seen women searching in heaps of filth for some remains of vegetables to devour. I have seen poverty in London, and I have taken upon myself the mission of laboring for the social transformation.
 
-"In 1881 I was expelled from Switzerland and wnt to Thonon, where I remained two months. Before going to England I visited Vienna, Saint Etienne, and Lyons. This is the journey for which I am reproached. I returned to Thonon October 12, 1882, and I do not need to tell you that I had nothing to do with the Montceau-les-Mines affair, for I was in London when it happened.
+"In 1881 I was expelled from Switzerland and went to Thonon, where I remained two months. Before going to England I visited Vienna, Saint Etienne, and Lyons. This is the journey for which I am reproached. I returned to Thonon October 12, 1882, and I do not need to tell you that I had nothing to do with the Montceau-les-Mines affair, for I was in London when it happened.
 
-"They have sought to represent me as the chief of the Nihilists and as a great dynamiter. You have seen from the words of my comrades that they wish no chief. I continually receive letters containing dynamite proposals. My wife, who is in Lyons, herself receives propositions concerning infernal machines. In Thonon some persons called upon me, ostensibly to ask employment as gardeners of servants, but really to spy my: I gave them ten sous out of pity for the necessity that compelled them to follow so villainous a trade. The next day the Lyons "Républican" said: "Our correspondent has seen Prince Kropotkine, who told him that he was the chief of the Anarchistic movement."
+"They have sought to represent me as the chief of the Nihilists and as a great dynamiter. You have seen from the words of my comrades that they wish no chief. I continually receive letters containing dynamite proposals. My wife, who is in Lyons, herself receives propositions concerning infernal machines. In Thonon some persons called upon me, ostensibly to ask employment as gardeners of servants, but really to spy me: I gave them ten sous out of pity for the necessity that compelled them to follow so villainous a trade. The next day the Lyons "Républican" said: 'Our correspondent has seen Prince Kropotkine, who told him that he was the chief of the Anarchistic movement.'
 
 "I am a socialist. A society which is divided into two distinct classes — one which produces and yet possesses nothing, and another which does not produce and yet possesses all — is a society without morality and self-condemned. A working man's labor represents an average of ten thousand francs a year, and hi annual wages are but two thousand, and often only one thousand francs. By the side of this misery are displayed the unbridled luxury, the foolish waste, the shameful depravity of that *bourgeoisie* class so well depicted by the modern novelist, Emile Zola. by what means can this shameful social injustice be reformed? Science is impotent to remedy it, and labor always benefits the well-to-do. Even John Stuart Mill insists upon the necessity of a social transformation.
 
-"I was by violent expropriation that the *bourgeoisie* stripped the nobility and the clergy of their land and their wealth. We demand the apllication of the Convention's decree: "The land belongs to all." Is this a crime? No; for it is necessary to apply it to the welfare of all and not to the profit of a class. The district attorney has said that I was the founder of Anarchy; but how Proudhon and Herbert Spencer and all the great thinkers of 1848?
+"I was by violent expropriation that the *bourgeoisie* stripped the nobility and the clergy of their land and their wealth. We demand the apllication of the Convention's decree: 'The land belongs to all.' Is this a crime? No; for it is necessary to apply it to the welfare of all and not to the profit of a class. The district attorney has said that I was the founder of Anarchy; but how Proudhon and Herbert Spencer and all the great thinkers of 1848?
 
-"We do not cease to labor and to study, and, instead of coming to discuss with us, they imprison us, they condemn us, because we defend these utopias — as you call them — which will be truths tommorow. Our idea has been planted, had has grown in spite of everything, in spite of persecutions, and it has developed with astounding rapidity. Be sure that our condemnation, our imprisonment, will bring us new proselytes. Persecution, you know, attract sympathy. For the rest, in condemning us, you will not solve the question,— you will enlarge and circulate it.
+"We do not cease to labor and to study, and, instead of coming to discuss with us, they imprison us, they condemn us, because we defend these utopias — as you call them — which will be truths tomorrow. Our idea has been planted, had has grown in spite of everything, in spite of persecutions, and it has developed with astounding rapidity. Be sure that our condemnation, our imprisonment, will bring us new proselytes. Persecution, you know, attract sympathy. For the rest, in condemning us, you will not solve the question,— you will enlarge and circulate it.
 
 "Finally I tell you that the laborers of France and Europe who know that the International does not exist, have their eyes fixed upon you, and will say, if you condemn us, that for the *bourgeoisie* and the laborers there are two weights and two measures.
 
 "What a revelation for them!
 
-"Do not foment hatreds; repression has never served a good purpose. Prosecuted twice under the empire, the International rose in 1870 more glorious and stronger than ever. Crushed in the streets, after the Commune, under thirty-five thousand dead bodies, socialism, stronger than before, has infused new life into the blood of old disciples. Its ideas on property have spread to a formidable extent and Bismarck himself has admitted the uselessness of law against socialist. 
+"Do not foment hatreds; repression has never served a good purpose. Prosecuted twice under the empire, the International rose in 1870 more glorious and stronger than ever. Crushed in the streets, after the Commune, under thirty-five thousand dead bodies, socialism, stronger than before, has infused new life into the blood of old disciples. Its ideas on property have spread to a formidable extent and Bismarck himself has admitted the uselessness of law against socialists. 
 
 "Gentleman, believe me, the social revolution is at hand; before ten years it will break out; I live among the laborers, and I affirm it. Inspire yourselves with their ideas, go down into their ranks, and you will see that I am right.
 
