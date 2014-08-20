@@ -87,8 +87,11 @@ The Anarchist alone is able to cast an unclouded eye on the whole drift of thing
 Dr. Edward B. Aveling, a scientific man of note in England, has taken editorial charge of the "Freethinker" during the imprisonment of its editor and publishers recently convicted of blasphemy. The first number appearing under his management contained some verses beginning thus:
 
 > Once more a Christian judge and jury,
+>
 > Brimful of heavenly love and fury,
+>
 > Have sent three honest men to prison
+>
 > To prove that Jesus Christ is risen.
 
 ## The Foolishness of Voting.
