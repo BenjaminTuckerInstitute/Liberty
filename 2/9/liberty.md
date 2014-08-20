@@ -6,7 +6,7 @@
 
 John Hay.
 
-﻿## On Picket Duty.
+## On Picket Duty.
 
 When Victor Hugo was asked to sign the petition for Prince Kropotkine's release, printed in another column, he wrote on the margin at the top of the page the following words: "All questions of amnesty have an interest for me, and I take particularly to heart this petition in favor of the liberation of Prince Kropotkine." The great French poet evidently does not read the Boston "Advertiser"; else he would have known that Kropotkine is a disorderly ignoramus whom Frenchmen are not supposed ever to have heard of, still less take interest in.
 
