@@ -181,7 +181,9 @@ We make this appeal in the firm persuasion that the sentence passed upon him is 
 In the hope that you will favorably entertain this petition your memorialists will ever pray.
 
 Henry Maudesley,
+
 B. W. Richardson,
+
 Joseph Cowen, M.P., and others.
 
 ### From the London correspondence of the Boston "Advertiser."
