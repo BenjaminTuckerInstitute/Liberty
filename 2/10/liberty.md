@@ -98,7 +98,7 @@ Bagdanovitsch, who had taken the name of Koboseff, was, it appears, the propriet
 
 Gratieffski, Klemenko, Boutsevitsch, and Slatopolski are charged with complicity in the execution of the Czar.
 
-TelatolF, Steplmnovitsch, Madame louschkova, and the others arc simply accused of having been engaged in propu-gandism.
+Telatoff, Stephanovitsch, Madame Fouschkova, and the others are simply accused of having been engaged in propagandism.
 
 The first hearing is thus described by the correspondent of the “Dix-Neuvième Siècle”:
 
