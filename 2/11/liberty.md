@@ -1,4 +1,12 @@
-﻿## On Picket Duty.
+> “For always in thine eyes, O Liberty!
+>
+> Shines that high light whereby the world is saved;
+>
+> And though thou slay us, we will trust in thee.”
+
+John Hay.
+
+## On Picket Duty.
 
 The position of the woman suffragists, when thoroughly understood, is simply that women have as good a right to make fools and villains of themselves as men have. We do not dispute it. But is the right to be a fool worth fighting for, and has either man or woman the right to be a villain?
 
@@ -19,6 +27,8 @@ Somebody, for some purpose or other, has taken the trouble to send us a copy of 
 E. H. Heywood has been arrested again on an obscene literature charge,— this time, however, under a State law, instead of for an offence against the United States mails. He was arraigned at Worcester a few weeks ago, when the district attorney made an effort to push him to trial without any opportunity for preparation. Judge Pitman would not allow this, and consequently the trial will take place either in August or October at the discretion of the district attorney. The special offence charged is the distribution of a tract written by Mrs. Angela T. Heywood upon the right of woman to prevent conception, in which the sexual organs are spoken of with unusual freedom and in a style which Liberty would neither adopt nor recommend. Still the argument is legitimate, sober, and earnest, and contains nothing lewd or lascivious in the least, and it would be a most contemptible outrage to punish any one for circulating it. For one reason we are glad the arrest is made under a State law. It will test the quality of the devotion to Liberty professed by those Liberal League leaders who have elaborated ingenious arguments to show that the States may regulate morals but that the national government cannot. We shall now see whether Mr. Thaddeus B. Wakeman and his friends object to the substance of tyranny, or only to a certain form thereof. Mr. Heywood, by the way, desires to print in pamphlet form the stenographic report of his recent trial. It is a commendable purpose, and any friend of Liberty who wishes to aid in its execution may send his contribution to “E. H. Heywood, Princeton, Mass.”
 
 Our ardent and admirable contemporary, “Le Révolté,” says with truth: “The Anarchists can have but one well-defined rule of conduct,— to break down all barriers which prevent humanity from marching forward, not only those which exist, but also those which some would like to create in place of those destroyed. Humanity can progress freely only when each individual is left to follow out his tendencies.” Exactly so; but in that case what will become of the barrier which “Le Révolté” proposes to create between A. B., the shoemaker, and C. D., the tailor, to prevent the exchange of the shoes made by the one for the coats made by the other? Is that to be allowed to stand? If so, what will become of the freedom of the individuals A. B. and C. D. to follow out their tendencies, and consequently of the progress of humanity? These are grave and vital questions, and we should like to have “Le Révolté” reply to them. If we understand “Le Révolté,” that excellent journal, in spite of its commendable opposition to Authority, almost always concludes its attacks upon it by advising the people (who the people are and how they are to manifest themselves does not appear) to exercise Authority to the extent of forcibly despoiling all individuals of all their tools and materials and administering the same collectively (whatever that mysterious adverb may imply). Whether such obstreperous individuals as may refuse to be thus summarily “collected” are to be imprisoned or shot or starved we do not know; certain it is that they are not to be allowed to produce for, and exchange with, each other in their own way. Now, it seems to us that this would be simply to substitute for the present State one even more objectionable, and that the *régime* thus inaugurated, far from being Anarchy, would be one of the most tyrannical Archies imaginable. Under it (to use a favorite metaphor of French radicals) laborers would continue to be cooked and eaten, but with a slightly different sauce. Liberty thinks twice before criticising “Le Révolté,” but maintains nevertheless that the task of intelligent socialism is not to deprive individuals of their capital, but to abolish the privileges and monopolies which make capital an instrument of theft from labor; and that whoever maintains the contrary is not an Anarchist, but an *Autoritaire.*
+
+> “A free man is one who enjoys the use of his reason and his faculties; who is neither blinded by passion, not hindered or driven by oppression, not deceived by erroneous opinions.” — Proudhon.
 
 ## Memorial Day and Its Mockeries.
 
@@ -222,6 +232,6 @@ But respecting the rights of those who differ from them is the last thing these 
 
 Our tyrants are not to-day priests of God, *acting in that capacity*, but voters wielding the swords and bludgeons of majorityism. And this majority is determined that its ideas of morality shall be accepted by the minority.
 
-Many men and women have rejected the childish tales of theology, while but few have outgrown her methods of reform. The so-called Liberal who favors coercive laws in the alleged interest of morality is just as censurable as, and much more dangerous than, tbe supernaturalist who favors similar laws in the interest of God. The duty of the radical to-day is to demand the recognition of the Individual, of the Individual as the supreme and only sovereign of himself, and, *consequently*, of none other.
+Many men and women have rejected the childish tales of theology, while but few have outgrown her methods of reform. The so-called Liberal who favors coercive laws in the alleged interest of morality is just as censurable as, and much more dangerous than, the supernaturalist who favors similar laws in the interest of God. The duty of the radical to-day is to demand the recognition of the Individual, of the Individual as the supreme and only sovereign of himself, and, *consequently*, of none other.
 
 E. C. Walker.
