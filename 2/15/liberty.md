@@ -154,4 +154,6 @@ One word more. You ask me to print your reply to me in the columns of Liberty, o
 
 Benj. R. Tucker.
 
+* * *
+
 Our edition of “God and the State” can be obtained in England from The Science Library, Tunbridge Wells, Kent, or from George Standring, 8 & 9 Finsbury Street, London. Thus the English people will be supplied with Bakounine’s work, despite the failure of English publishers to issue it. Concerning their failure in this regard, we are in receipt of the following from our faithful friend, Tchaykovsky: “Dear Comrade — Having read in your last your letters against ‘Truth,’ I feel obliged to inform you immediately that Miss Le Compte’s translation of *Dieu et l’Etat* was trusted to my care to be published in England, but still lies in my portfolio without any use on account of want of a courageous publisher in this country. Please mention this my communication in your next. Yours as ever, N. Tchaykovsky.”
