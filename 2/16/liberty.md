@@ -44,7 +44,7 @@ Mr. Ivan Panin comes tardily to the front with an answer to a criticism long ago
 
 ## What’s To Be Done?
 
-#### A Romance.
+### A Romance.
 
 #### By N. G. Tchernychewksy.
 
@@ -431,7 +431,7 @@ So they went to the opera. After the first act the son of the mistress came in, 
 
 Without further ceremony, after the customary salutations, they sat down and began to converse in low tones in French, Mikhail Ivanytch and the civilian especially; the soldier talked little.
 
-(To be continued.)
+[To be continued.]
 
 * * *
 
@@ -682,7 +682,7 @@ Wm. Harrison Riley.
 
 ## The Dreamer.
 
-[Boston Globe.]
+### [Boston Globe.]
 
 > A *dreamer*, sneers the worker,
 
