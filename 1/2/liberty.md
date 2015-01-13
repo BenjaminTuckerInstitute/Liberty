@@ -36,7 +36,7 @@ The Social Democrats of Europe are having a hard time of it. Forbidden to hold t
 
 > "A free man is one who enjoys the use of his reason and his faculties; who is neither blinded by passion, nor hindered or driven by oppression, nor deceived by erroneous opinions." — Proudhon.
 
-## Vive I'Association Internationale!
+## Vive l'Association Internationale!
 
 The late Col. William B. Greene, than whom no keener philosopher has yet been produced by America, speaking in 1873, in a pamphlet, of the International Working-People's Association, of which he was a member, said: "No man can claim the merit of having made it; it came of itself. No man can destroy it. It may dissolve a hundred times; but, every time it dissolves, it will crystallize anew. Its soul is immortal, and its body can never be annihilated: it is fore-ordained that it shall live under a thousand successive names. Multitudes of labor-organizations which never heard of it, and of which it never heard, are natural, integral parts of it. It is vital in every member, and will live forever, or, at the least, until the wrongs of man upon this earth are righted."
 
