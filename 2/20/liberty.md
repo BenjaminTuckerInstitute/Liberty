@@ -1,3 +1,11 @@
+> “For always in thine eyes, O Liberty!
+>
+> Shines that high light whereby the world is saved;
+>
+> And though thou slay us, we will trust in thee.”
+
+John Hay.
+
 ## On Picket Duty.
 
 The delay in the appearance of this issue was unavoidable, the death of my father having suddenly called me from the city for a week. By the same cause the publication in pamphlet of “An Anarchist on Anarchy” is also delayed for a few days.
@@ -12,7 +20,7 @@ If there is anything in which Christian England finds supreme satisfaction and c
 
 “The study of the faces of an American crowd on a holiday,” says the Boston “Advertiser,” “is anything but enlivening. It will be a positive gain for our civilization when this hard work-day aspect of it shall give place to a cheery geniality, and the faces of the people will afford the best index of such a beneficial change.” Why not help bring about the beneficial change and make the much-desired “cheery geniality” possible? You never will banish the hard work-day aspect or make any gain for civilization whatsoever by playing a part in the game of political trickery.
 
-I regret to announce the death of the “San Franciscan.” The paper was started by Joseph Goodman and Arthur McEwen in the belief that a community which has protested against railroad robbery and land monopoly more loudly than any other would gladly support an absolutely independent journal in the battle for liberty. It cost them #8,000 to discover that the merchants and business men of San Francisco are cowards, who deserve no sympathy in their slavery to Messrs. Huntington, Crocker, and Stanford. The “San Franciscan” did good work while it lived, thanks to the ability, sincerity, and radicalism of Mr. McEwen. It would have lived longer, perhaps, had the publishers ignored miscellaneous literature and printed a smaller paper devoted exclusively to the discussion of social problems and to literature of a radical tendency. I think the fate of the “San Franciscan” indicates that the days of eclectic journalism are disappearing, and that special journalism is coming to the front here as in France The people do not demand any longer that the pills of opinion shall be sugar-coated.
+I regret to announce the death of the “San Franciscan.” The paper was started by Joseph Goodman and Arthur McEwen in the belief that a community which has protested against railroad robbery and land monopoly more loudly than any other would gladly support an absolutely independent journal in the battle for liberty. It cost them $8,000 to discover that the merchants and business men of San Francisco are cowards, who deserve no sympathy in their slavery to Messrs. Huntington, Crocker, and Stanford. The “San Franciscan” did good work while it lived, thanks to the ability, sincerity, and radicalism of Mr. McEwen. It would have lived longer, perhaps, had the publishers ignored miscellaneous literature and printed a smaller paper devoted exclusively to the discussion of social problems and to literature of a radical tendency. I think the fate of the “San Franciscan” indicates that the days of eclectic journalism are disappearing, and that special journalism is coming to the front here as in France The people do not demand any longer that the pills of opinion shall be sugar-coated.
 
 In attempted rebuke of Ingersoll’s disposition to make sport of the Bible, Henry Ward Beecher recently said: “I would like to see the man who would bring down the cradle in which his children had been rocked and split it up for firewood and laugh to see it burn. What sort of a man would he be? When the child is gone and in some moment the mother finds in the drawer a little shoe that the child wore, she is bathed in tears, though the child has been dead for years and years; natural affection leads us to repeat the children’s little broken language. The prattle becomes dear to us, and the little garments that would be absurd to put upon the grown man’s back we hang up and look at as our children’s heritage, as belonging to them.” But this absurdity, Mr. Beecher, is just what the Christians are guilty of. Suppose the mother in question, instead of hanging up the garments of her child to cherish as mementos, should don them and parade the streets therein. Would she not cut a most ludicrous figure? And if her sanity were not questioned, would she not be rightly ridiculed? Yet you, Mr. Beecher, and your fellow-Christians, don the outgrown garments of a barbarian theology and persist in walking the streets at noonday; and then weep because infidels, clad in more modern garb, are forced to hold their sides with laughter. Put away your Bibles, read them in your closets as the childish prattle of your ancestors, and no smile of ours shall disturb your tender recollections.
 
@@ -22,7 +30,7 @@ Liberty prints in this issue a great poem,— such a poem as is not written ofte
 
 ## The Wind and the Whirlwind.
 
-#### By Wilfrid Scawen Blunt.
+### By Wilfrid Scawen Blunt.
 
 > I have a thing to say. But how to say it?
 >
@@ -150,7 +158,7 @@ Liberty prints in this issue a great poem,— such a poem as is not written ofte
 > Bent a fool’s knee at War’s red altar stone,
 
 
->And left all virtue beggared in his falling,
+> And left all virtue beggared in his falling,
 >
 > A sign to England of new griefs to come,
 >
@@ -955,6 +963,7 @@ Liberty prints in this issue a great poem,— such a poem as is not written ofte
 >
 > I had a thing to say. And it is said.
 
+> “A free man is one who enjoys the use of his reason and his faculties; who is neither blinded by passion, not hindered or driven by oppression, not deceived by erroneous opinions.” — Proudhon.
 
 ## “The Public Be Damned!”
 
@@ -970,7 +979,7 @@ K.
 
 ## Liberty and Wealth.
 
-IV.
+### IV.
 
 ### New Harmony: Darkness — Dawn.
 
@@ -1090,7 +1099,6 @@ There is but one radical cure, and that is to arraign and belittle the whole swi
 
 X.
 
-
 ## Then and Now:
 
 #### or,
@@ -1137,15 +1145,15 @@ I shall write again soon.
 
 Josephine.
 
-## What’s to be Done?
+## What’s To Be Done?
 
-#### A romance.
+#### A Romance.
 
-#### By N. G. TCHERNYCHEWSKY.
+### By N. G. Tchernychewsky.
 
-Translated by Benj. R. Tucker.
+#### Translated by Benj. R. Tucker.
 
-Continued from No. 45.
+#### Continued from No. 45.
 
 Here I might have invented a tragic climax; in reality there was none. I might have put everything into confusion to allure the reader. But, a friend of truth and an enemy of subterfuge, I warn my readers in advance that there will be no tragic climax and that the clouds will red away without lightning or thunder or tempest.
 
@@ -1205,7 +1213,7 @@ We know, moreover, that this reserve was natural on Vérotchka’s side; the deg
 
 It was easy to see why Vérotchka should think thus. But what was he really? According to Fédia, a savage with head full of books and anatomical preparations,— all the things which make up the principal intellectual enjoyment of a good student of medicine. Or had Fédia slandered him?
 
-### II.
+#### II.
 
 No, Fédia hail not slandered him; Lopoukhoff was actually a student with head full of books, and what books? The bibliographical researches of Maria Alexevna will tell us that in due time. Lopoukhoff’s head was also full of anatomical preparations, for he dreamed of a professorship. But, just as the information communicated by Fédia to Lopoukhoff concerning Vérotchka has given an imperfect knowledge of the young girl, there is reason to believe that the information imparted by the pupil as to his teacher needs to be completed.
 
