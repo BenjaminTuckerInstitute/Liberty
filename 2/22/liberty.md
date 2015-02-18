@@ -6,7 +6,7 @@
 
 John Hay.
 
-﻿## On Picket Duty.
+## On Picket Duty.
 
 The man or woman who does not send me twenty-five cents for a copy of “The Wind and the Whirlwind,” now ready in parchment covers, will miss an opportunity of getting the prettiest ornament for his or her library table that was ever offered in the market for that sum of money, to say nothing of the surpassing merit of the poem itself. The ordinary price for such a book is at least fifty cents.
 
