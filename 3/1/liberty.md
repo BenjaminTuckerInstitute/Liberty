@@ -6,7 +6,7 @@
 
 John Hay.
 
-﻿## Success.
+## Success.
 
 ### [To-day.]
 
@@ -106,7 +106,7 @@ John Hay.
 >
 > Grow thence, for God to pluck and call Success.
 
-1853. *W. J. Linton*
+1853\. *W. J. Linton*
 
 ## Gradually Discovering Truth.
 
