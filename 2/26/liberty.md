@@ -1,3 +1,11 @@
+> “For always in thine eyes, O Liberty!
+>
+> Shines that high light whereby the world is saved;
+>
+> And though thou slay us, we will trust in thee.”
+
+John Hay.
+
 ## On Picket Duty.
 
 The “Truth-Seeker” reports Stephen Pearl Andrews as saying at a recent meeting of the Liberal club that hereafter he should have something to say in that paper, from time to time, on the labor question. At which Liberty rejoices.
@@ -69,6 +77,7 @@ Liberty has a friend in New York whose loyalty to the Anarchistic movement canno
 > What careth the burden-bearer that Liberty packed his load,
 >
 > If Hunger presseth behind him with a sharp and ready goad?
+
 
 > There’s a serf whose chains are of paper; there’s a king with a parchment crown;
 >
@@ -399,6 +408,8 @@ Another conversation.
 \*\* Now thirty years ago.
 
 \*\*\* Fedka, a diminutive of Fœdor in popular usage.
+
+> “A free man is one who enjoys the use of his reason and his faculties; who is neither blinded by passion, not hindered or driven by oppression, not deceived by erroneous opinions.” — Proudhon.
 
 ## The American Monarchy.
 
