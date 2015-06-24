@@ -287,6 +287,7 @@ The next morning Nastennka Krukoff came to see Véra Pavlovna.
 [To be continued.]
 
 \* Nastennka and Sacha are the diminutives of Nastassia and Alexander.
+
 \*\* A more affectionate diminutive than Sacha.
 
 > “A free man is one who enjoys the use of his reason and his faculties; who is neither blinded by passion, nor hindered or driven by oppression, nor deceived by erroneous opinions.” — Proudhon.
