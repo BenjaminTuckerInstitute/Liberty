@@ -614,7 +614,7 @@ The “Alarm” is the only English paper in America that advocates the complete
 >
 > “And I am glad to see there’s nothing wasted.”
 
-E. V. Blake.
+E\. V\. Blake.
 
 ## The Prize Goose is a Michigander.
 
