@@ -511,7 +511,7 @@ He looks out of the window.
 
 A neighbor, passing, nods to him.
 
-“There goes a man, now, too honest to live. He’s poor, but he don't seem to mind it. Or, at any rate, it don’t fret him. You see he’s not ambitious. He has plenty of brains, nevertheless. If you don’t think so, just tackle him. But he’s a deal sight better to other people than he is to himself. He’s too fussy. Has too many ‘principles,’ crotchets, hobbies. It don’t pay to have hobbies,— to be wiser and better than the rest of mortals. Your lot is cast with mankind as it is today, and you are bound, if you’re in Rome, to do as the Romans do — or go under. But that man — I don’t suppose he ever wronged anybody in his life.”
+“There goes a man, now, too honest to live. He’s poor, but he don’t seem to mind it. Or, at any rate, it don’t fret him. You see he’s not ambitious. He has plenty of brains, nevertheless. If you don’t think so, just tackle him. But he’s a deal sight better to other people than he is to himself. He’s too fussy. Has too many ‘principles,’ crotchets, hobbies. It don’t pay to have hobbies,— to be wiser and better than the rest of mortals. Your lot is cast with mankind as it is today, and you are bound, if you’re in Rome, to do as the Romans do — or go under. But that man — I don’t suppose he ever wronged anybody in his life.”
 
 “Astonishing! The miserable fellow! How he must suffer! Not to do as the Romans do! And he’s going under, is he?”
 

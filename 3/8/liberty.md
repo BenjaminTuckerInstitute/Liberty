@@ -142,7 +142,7 @@ Kirsanoff’s eyes had a steady look of animosity, as if there were a man before
 
 “Dmitry, I beg you to go away, or I shall have to go myself.”
 
-“You cannot. Is it with your interests that I am concerned?"
+“You cannot. Is it with your interests that I am concerned?”
 
 Kirsanoff did not say a word.
 
@@ -172,7 +172,7 @@ Kirsanoff’s eyes, fixed on Lopoukhoff, shone with indignation.
 
 “I cannot. You began upon a senseless and therefore dangerous matter.”
 
-“I do not understand of what affair you speak, and I must say that this conversation pleases me no more than it pleased you two minutes ago."
+“I do not understand of what affair you speak, and I must say that this conversation pleases me no more than it pleased you two minutes ago.”
 
 “I demand an explanation of you, Dmitry.”
 

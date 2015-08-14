@@ -162,7 +162,7 @@ The other day I was at Mrs. A. B.’s. A charming woman, though very conservativ
 
 “Mrs. C. D. and I see each other no more.”
 
-“Ah! something has come between you?"
+“Ah! something has come between you?”
 
 “Nothing at all. But Henriette was not married at church.”
 
@@ -194,7 +194,7 @@ A few days later I happened to be at Mrs. C D.’s.
 
 “Why so?”
 
-“Because she has been the mistress of E. F."
+“Because she has been the mistress of E. F.”
 
 “But is she not now his wife?”
 
