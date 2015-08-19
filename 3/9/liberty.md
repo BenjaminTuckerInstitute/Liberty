@@ -336,9 +336,9 @@ To be continued.
 
 \*\* A verst is equivalent to a little more than half a mile.
 
-\*\*\*
+\*\*\* Nearly seven feet.
 
-\*\*\*\*
+\*\*\*\* More than five hundred and forty pounds.
 
 > “A free man is one who enjoys the use of his reason and his faculties; who is neither blinded by passion, nor hindered or driven by oppression, nor deceived by erroneous opinions.” — Proudhon.
 
