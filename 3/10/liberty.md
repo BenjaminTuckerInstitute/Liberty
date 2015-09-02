@@ -302,11 +302,11 @@ Politics is a patent bamboozling machine, whereby power-hungry knaves and indust
 
 The mission of the true Anarchist (disciple of Liberty) is to set free these social instincts, now imprisoned and choked up by artificial machines. Nature has provided the most complete organic guarantees of order, if only the children of men can be liberated from the pressure of contrivances designed to forestall and defeat natural law. Chaos is the ultimate penalty of the machine. Anarchy is the synonym of order, since, if anything, it is the deadly enemy of the machine. As the machine is abolished, Liberty, not the daughter, but the mother of order, will redeem her own.
 
-X.
+X\.
 
 P\.S\. Since penning the above, Herr Most’s “Freiheit” has come to hand, with an able rejoinder touching the points alleged in my last article. Considering the vital nature of the issues involved, and by no means wishing to place Most and his party in a false light, I will attempt to reply in the next number.
 
-X.
+X\.
 
 ## A Champion of the Innocents.
 
@@ -386,7 +386,7 @@ Enclosed find fifty cents,— twenty-five to extend my own subscription and twen
 
 I do my best to spread your paper among those of my acquaintance who are more or less penetrated with socialistic ideas, but it is a very hard job to convince a German socialist of the Anarchistic faith of a paper which does not thunder with dynamite, bombs, and revolvers at least in every three lines. It is still harder to convince these “new Anarchists” that Anarchism has nothing to do with communism. I was myself an Anarchist of that kind before I read Liberty, but now I am taught by this paper that man cannot be made happy by any system enforced by others, but only by one which is the product of his own will. Absolute liberty only can direct the efforts of man to goodness and fairness, because only in such a case can he distinguish and choose the best; but this cannot be said of liberty limited by some economic or political system. Fraternally yours,
 
-M. Franklin.
+M\. Franklin.
 
 New Haven, Conn., February 15, 1885.
 
