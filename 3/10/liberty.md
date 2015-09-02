@@ -312,7 +312,7 @@ X\.
 
 With evident satisfaction and patriotic pride the hired editorial prostitute of the Providence “Journal” records that the Ordinance Board of the United States Army has recommended the construction of a monster balloon able to carry dynamite percussion bonds sufficient to destroy a city, a military camp, or a fleet of ships, with perfect impunity. When the London dynamiters incidentally scorched the petticoats of two or three loungers about the houses of parliament, the “Journal” thought it horrid that such inhuman fiends could be willing to sacrifice innocent lives, even to avenge the wrongs of their country. The “Journal,” however, earnestly recommends that the Ordinance Board hurry forward the machinery by which Uncle Sam’s dynamiters may be able to drop a bomb which shall destroy a whole city at once. It forgets all about “innocent lives” in this case. Shall one pray, pity, or swear over such sickening hypocrisy?
 
-X.
+X\.
 
 ## Auberon Herbert and His Work.
 
