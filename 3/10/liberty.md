@@ -104,7 +104,7 @@ Henry Appleton.
 
 ## The Next Question.
 
-﻿### [Galvesten Daily News.]
+### [Galvesten Daily News.]
 
 Some hundreds of years ago it was supposed that a country could not do without a personal ruler and a state religion. The next question is, can it do without a party boss system,— a party president at the top and party postmasters at the bottom, with majority tyranny, sumptuary laws, and government intermeddling with labor and commerce all the way between.
 
