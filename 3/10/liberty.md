@@ -24,9 +24,9 @@ To a letter from a Congregationalist clergyman asking me this question: “Has t
 
 The friends of conservatism in finance are making a great, handle of the inventory of Wendell Phillips’s estate. It appears that this great man’s once large property had dwindled at the time of his death to some eight thousand dollars, plus several wagon-loads of worthless mining stocks. Immediately goes up the hue-and-cry. “What a crazy-head was this Greenbacker!” shout the bankers. “What a child in finance was this champion of the rag-baby!” exclaim the sapient economists who sit in editorial chairs. Such is the penalty of failure! That Wendell Phillips was a victim of the speculative mania there is little doubt; that during the latter part of his life he was continually dabbling in stocks, and sometimes much more than dabbling, is the testimony of the money-kings of State street. But what of it? What has this to do with the soundness of his ideas in political economy? As if, indeed, the hard-money men themselves do not, many of them, spend the greater part of their lives in similar speculations and on a much larger scale, with results ranging from the enormous success of a Gould to the humiliating failure of a Phillips and worse! But who thinks of testing the hard-money theory by the size of a Gould’s fortune (except in the general sense that such a fortune can only be accumulated by some system of robbery)? Or suppose that one of Phillips’s mining ventures had turned out well and given him an immense fortune, as it might easily have done. Would this have made Greenbackism true or turned the rag-baby into an infant princess? By no means. The truth is that there is little in common between the essential qualities of a successful speculator and those of a clear-seeing social philosopher. The success of a speculator or business man depends largely on chance and largely on temperament; the shrewdest often go under, and the stupidest often succeed. But the wisdom of a philosopher depends principally on his brains, for which there is no substitute. Liberty has no faith in Greenbackism and never regarded Wendell Phillips as a profound thinker, but its opinion of his merits in this respect can never be influenced by the fact that he was not a favorite of fortune in games of chance.
 
-﻿## God’s Useless Work.
+## God’s Useless Work.
 
-﻿### [London Justice.]
+### ﻿[London Justice.]
 
 > “What animal is that, papa, which looks so much like man?”
 >
@@ -78,9 +78,9 @@ The friends of conservatism in finance are making a great, handle of the invento
 
 *Cosmopolite.*
 
-﻿## The Reward of Manliness.
+## The Reward of Manliness.
 
-﻿### [Boston Globe.]
+### [Boston Globe.]
 
 A small head, covered with a thick mass of black hair, rested squarely on the shoulders of Michael Healey, as he arose before Judge Parmenter of the Municipal Court yesterday, in answer to the charge of idle and disorderly conduct. His bright eyes and rough garb made him look like the pictures of Hugo’s Jean Valjean.
 
@@ -94,7 +94,7 @@ A small head, covered with a thick mass of black hair, rested squarely on the sh
 
 “An’ I’ll not thank ye for that, sor,” was his reply.
 
-﻿## Paint Me As I Am.
+## Paint Me As I Am.
 
 *To the Editor of Liberty:*
 
@@ -102,7 +102,7 @@ I do not like to be over-captious as to names that are associated with my own in
 
 Henry Appleton.
 
-﻿## The Next Question.
+## The Next Question.
 
 ﻿### [Galvesten Daily News.]
 
@@ -284,7 +284,7 @@ To be continued.
 
 > “A free man is one who enjoys the use of his reason and his faculties; who is neither blinded by passion, nor hindered or driven by oppression, nor deceived by erroneous opinions.” — Proudhon.
 
-﻿## The True Genius of Anarchism.
+## The True Genius of Anarchism.
 
 In the last number of Liberty I condemned every manner of machine which it is proposed to set up, by which to take care of society at large,— alleging that, if the machine in reform is to be recognized, one machine is as good as another, because all are radically wrong in principle. I still maintain that whoever drafts a machine, with the intent of saddling the same upon all society, is no true Anarchist; but, on the contrary, violates the very basic principle of Anarchism.
 
@@ -308,13 +308,13 @@ P\.S\. Since penning the above, Herr Most’s “Freiheit” has come to hand, w
 
 X.
 
-﻿## A Champion of the Innocents.
+## A Champion of the Innocents.
 
 With evident satisfaction and patriotic pride the hired editorial prostitute of the Providence “Journal” records that the Ordinance Board of the United States Army has recommended the construction of a monster balloon able to carry dynamite percussion bonds sufficient to destroy a city, a military camp, or a fleet of ships, with perfect impunity. When the London dynamiters incidentally scorched the petticoats of two or three loungers about the houses of parliament, the “Journal” thought it horrid that such inhuman fiends could be willing to sacrifice innocent lives, even to avenge the wrongs of their country. The “Journal,” however, earnestly recommends that the Ordinance Board hurry forward the machinery by which Uncle Sam’s dynamiters may be able to drop a bomb which shall destroy a whole city at once. It forgets all about “innocent lives” in this case. Shall one pray, pity, or swear over such sickening hypocrisy?
 
 X.
 
-﻿## Auberon Herbert and His Work.
+## Auberon Herbert and His Work.
 
 Auberon Herbert, whose essay, “A Politician in Sight of Haven,” creates such an enthusiasm for Liberty in the minds of all thinking people who read it, has recently published still another book of similar purport and purpose. He calls it “The Right and Wrong of Compulsion by the State: A Statement of the Moral Principles of the Party of Individual Liberty, and the Political Measures Founded Upon Them.” It consists of a series of papers written for Joseph Cowmen’s paper, the Newcastle “Chronicle,” supplemented by a letter to the London “Times” on the English factory acts. Dedicated to Mr. Cowen’s constituents, “The Workmen of Tyneside,” it appeals with equal force to workmen the world over, and their welfare and their children’s will depend upon the readiness with which they accept and the bravery with which they adhere to its all-important counsel. The book is a magnificent assault on the majority idea, a searching exposure of the inherent evil of State systems, and a glorious assertion of the inestimable benefits of voluntary action and free competition, reaching its climax in the emphatic declaration that “this question of power exercised by some men over other men is the greatest of all questions, the one that concerns the very foundations of society,” upon the answer to which “must ultimately depend all ideas of right and wrong.” This is a bold and, at first sight, an astonishing claim, but it is a true one nevertheless, and the fact that Mr. Herbert makes it so confidently shows that he is inspired by the same idea that gave birth to this journal, caused it to be christened Liberty, and determined it to labor first and foremost for Anarchy, or the Abolition of the State.
 
@@ -330,9 +330,9 @@ T\.
 
 Still another Anarchistic journal to be published in Paris, “Le Drapeau Rouge” (The Red Flag). The first number will appear May 24, the fourteenth anniversary of the Bloody Week when the infamous Versaillists massacred the people of Paris. The objects of the new journal are thus announced: “To try to free the laborer from all the barriers placed in his way in existing society; to make him see the benefits that social revolution will bring him, while proving to him that all governmental systems are bad and consequently must be suppressed; to make him understand also the necessity of destroying all authority, in whatever form it may present itself, and of substituting for at the practical idea of spontaneous organization.”
 
-﻿## Was Charles O’Conor an Anarchist?
+## Was Charles O’Conor an Anarchist?
 
-﻿### [Rejected by The Century.]
+### [Rejected by The Century.]
 
 The March “Century” contains some recollections of the late Charles O’Conor, very interesting to the friends and admirers of this remarkable man. Towards the close of the article, however, the writer, probably well conscious of the Anarchistic learnings of Mr. O’Conor, would seem to wish to convey the inference that his well-known distrust of “public judgment” was due to his failure of success as a public man. 
 
@@ -352,7 +352,7 @@ Henry Appleton.
 
 Providence, R. I.
 
-﻿## Let Us Reason Together.
+## Let Us Reason Together.
 
 *To the Editor of Liberty:*
 
@@ -368,7 +368,7 @@ I believe in the fullest individual liberty consistent with safety, morality, an
 
 N\. G\. W\.
 
-﻿## An Iowa Woman With Her Eyes Open.
+## An Iowa Woman With Her Eyes Open.
 
 The following letter, written by Cornelia Boecklin, of Burlington, Iowa, is reprinted from the “American Nonconformist:”
 
@@ -378,7 +378,7 @@ I do not approve of the public school system, and here in this town for nineteen
 
 Cornelia Boecklin.
 
-﻿## Liberty Converts a Communist.
+## Liberty Converts a Communist.
 
 *Dear Mr. Tucker:*
 
@@ -390,7 +390,7 @@ M. Franklin.
 
 New Haven, Conn., February 15, 1885.
 
-﻿## Then and Now.
+## Then and Now.
 
 ### XV.
 
@@ -430,11 +430,12 @@ Mr. De Deinain today explained to me some things about the money of today which 
 
 “Not of necessity,” said Mr. De Demain. “I think the people of today are more honest, but their prosperity is what supports our currency, and that prosperity is in turn supported by the currency system. General prosperity also, I think, tends to make honesty more general, live under Anarchy.”
 
+
 At this point our conversation drifted off to other subjects, one of which I shall write you about in my next letter. It will, I think, show you one of the most peculiar things about this most peculiar thing,— Socialistic Anarchy.
 
 Josephine
 
-﻿## Proprietors and Their Slaves.
+## Proprietors and Their Slaves.
 
 I have seen in a long time nothing keener, wittier, more cutting than the following mercilessly sarcastic analysis of the existing social state read as an essay by G. Bernard Shaw of London before the Liberal and Social Union of that city on February 26. Much space is surrendered to it here, but none too much in view of its importance.
 
