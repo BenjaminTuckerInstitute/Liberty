@@ -76,7 +76,7 @@ As Ruskin once said of that journal’s utterance on another subject, so Liberty
 >
 > And by our dawn their faith is justified!”
 
-E. Nesbit.
+E\. Nesbit.
 
 ## The Church Necessarily Militant.
 
@@ -238,7 +238,7 @@ July 11, 2 o’clock in the morning.
 
 Listen to all that Rakhmétoff has to say to you. I do not know what he intends to say to you, I have not charged him to say anything to you, and he has not made the slightest allusion to what he intends to say. But I know that he never says anything unnecessary. Yours, 
 
-D. L.
+D\. L\.
 
 God knows how many times Véra Pavlovna kissed this note.
 
@@ -470,7 +470,7 @@ Please accept, Madame, the homage of my most respectful and devoted feelings.
 
 *Archbishop of Paris.*
 
-M. Edouard Lockroy immediately answered:
+M\. Edouard Lockroy immediately answered:
 
 Paris. May 21, 1885.
 
