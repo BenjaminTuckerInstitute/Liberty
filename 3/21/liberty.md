@@ -236,7 +236,7 @@ No discussion would arise: he would promise on his part; the present hour was no
 
 This declaration conquered the hesitation of Sir Archibald, and, William Grobb, the clerk, consenting, with as good grace as he could command, to take a seat in the back of the carriage, on a footstool, he prepared to get up; but first the patron, lifting his cap of knit wool, presented himself:
 
-“Tom Lichfield, of Canterbury, merchant, member of the Philadelphian Society of Glasgow, of the temperance societies of Southampton, Merioneth, Dolgelly," etc., etc.
+“Tom Lichfield, of Canterbury, merchant, member of the Philadelphian Society of Glasgow, of the temperance societies of Southampton, Merioneth, Dolgelly,” etc., etc.
 
 Sir Archibald saluted him, and then his colleague of the Catholic faith, who, introducing him, told off his titles and functions,— already previously announced by him to Lichfield, when, in the rear, he had recognized the pastor’s profile. Clinging to the apron of the carriage and the hand that Tom held out to him, he installed himself on the seat, at the right of the driver, who judged it more prudent, all the same, to separate the two priests.
 
@@ -276,7 +276,7 @@ All throe — the priest, the pastor, and the merchant — turned aside from thi
 
 “And to think,” resumed the Englishman, snapping his whip briskly, “that they swarm about in there, some eight or ten of them, lying on the hard ground or in the mud when it has rained, smoked like herrings or pigs with their primitive fireplace (two rough stones laid together), fed, shall we say, on raw or half-cooked vegetables, and of what variety?”
 
-“Usually turnips which they do not even pare, in order to lose nothing," said the priest, between two lines of his breviary, which he had begun to read with contrition. “They set the kettle on a bench, and each dips into the dish.”
+“Usually turnips which they do not even pare, in order to lose nothing,” said the priest, between two lines of his breviary, which he had begun to read with contrition. “They set the kettle on a bench, and each dips into the dish.”
 
 “Sometimes there are potatoes, but never bread except at Easter,” added the pastor, who was devouring ginger lozenges to facilitate the work of his laborious digestion. “I have visited,” continued he, “those who ate grass like the cattle, and on the sea-shore others who, not having strength enough to fish, ate sea-weeds thrown up by the tide.”
 
@@ -496,7 +496,7 @@ One more quotation from the Vermont senator’s speech, and our readers will hav
 
 Thus we have stated the substance of the senator’s “insight” and “foresight.”
 
-And we have the editor's comment to the effect that these qualities constitute statesmanship in contrast with the characteristics of the “average politician.” “The average politician in office thinks of men only as voters, and directs his plans to carrying the election. The statesman, who answers to the definition of a ‘philosopher in action,’ thinks of them as human beings with needs and wants and aspirations, and shapes his course to secure for them the best and happiest, conditions of living.”
+And we have the editor’s comment to the effect that these qualities constitute statesmanship in contrast with the characteristics of the “average politician.” “The average politician in office thinks of men only as voters, and directs his plans to carrying the election. The statesman, who answers to the definition of a ‘philosopher in action,’ thinks of them as human beings with needs and wants and aspirations, and shapes his course to secure for them the best and happiest, conditions of living.”
 
 It is in this direction that the thoughts of Senator Edmunds are turning, and with particular reference to the “relation between capital and labor.”
 
@@ -534,7 +534,7 @@ But what that “careful adjusment” is, or should be, he has, so far as we are
 
 The editor bus evidently noticed this. He has, therefore, proceeded, in a manner all his own, to clear up this later and by no means least important factor in the business in hand,— concerning which we shall have somewhat to say at another time.
 
-Giving attention, on this occasion, principally to the senator, we are left to discover his probable opinions as to the method by which the “little squeak" is to be stopped, from the tenor of his remarks announcing it.
+Giving attention, on this occasion, principally to the senator, we are left to discover his probable opinions as to the method by which the “little squeak” is to be stopped, from the tenor of his remarks announcing it.
 
 He was addressing merchants, manufacturers, capitalists. He says in substance: “Gentlemen, we [you] who employ those who furnish the muscle and toil that give vigor and success to our enterprises are not quite secure in our position. In fact, there is a great agitation against us. Of course much of it, most of it, is wild and violent and wicked. But still it must have at least a small basis of truth and justice to stand upon; else it could not exist. The discontent would not be so general. Now, we must look to it. This discontent must be allayed. Labor must be conciliated, or capital will go up in an explosion.”
 
@@ -612,7 +612,7 @@ Geer, Nebraska.
 
 Kirsanoff talked a long time in this tone. And at last the patient told him the name of the man she loved, and gave him permission to speak to her father. Polosoff was greatly astonished to learn that the cause of his daughter’s exhaustion was a desperate passion; he was still more astonished when he heard the name of the man whom she loved, and said firmly: “Let her die rather. Her death would be the lesser misfortune for her as well as for me.”
 
-The case was the more difficult from the fact that Kirsanoff, after hearing Polosoff's reasons, saw that the old man was right and not his daughter.
+The case was the more difficult from the fact that Kirsanoff, after hearing Polosoff’s reasons, saw that the old man was right and not his daughter.
 
 #### IV.
 
@@ -767,7 +767,7 @@ In conclusion I would say that it would be foolish for slaves, as we are, to bui
 Vereschagine is a well-known Russian painter, who recently took it into his head to exhibit his principal pictures at Vienna, among them being a a “Holy Family,” a subject not altogether new. Only, being a faithful observer of the Gospels, which give Jesus Christ four brothers and as many sisters,— which transforms the pretended Virgin Mary into a sort of Mother Gigogne,— he has thought it his duty to represent this excellent matron surrounded by all her children.
 
 If any one is guilty in the reproduction of this historical detail, it must be the Evangelists, Saints Luke and
-Matthew, who have enumerated for us all the members of Joseph's family. But with, cunning trickery the Church, which in our early youth filled our ears with parables till we could not keep our eyes open and with puns which it attributed to God the Son, took good care not to entertain us with any account of this brood of children which make's the already problematical virginity of the aforesaid Mary a in most vulgar joke.
+Matthew, who have enumerated for us all the members of Joseph’s family. But with, cunning trickery the Church, which in our early youth filled our ears with parables till we could not keep our eyes open and with puns which it attributed to God the Son, took good care not to entertain us with any account of this brood of children which make’s the already problematical virginity of the aforesaid Mary a in most vulgar joke.
 
 In fact, even though she remained a virgin in spite of the coming into the world of her son Jesus, she evidently ceased to be one on giving birth to his brothers and sisters; and supposing one of them to have been his elder, what becomes of her boasted purity at the time when the Holy Ghost conceived the idea of paying a little visit to the unfortunate woman of whom he made an adulterous wife.
 
