@@ -554,7 +554,7 @@ But half an hour afterwards she called on him herself.
 
 “But how would he take it?”
 
-“When you see in what way he will take it, you can reflect further as to the better course to follow."
+“When you see in what way he will take it, you can reflect further as to the better course to follow.”
 
 “But it would be painful to me to tell him.”
 
