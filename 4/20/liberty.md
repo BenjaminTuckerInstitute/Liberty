@@ -263,7 +263,7 @@ But Harvey and Treor, while applauding their enthusiasm, their feverishness, rea
 
 To be continued
 
-“In abolishing rent and interest, the last vestiges of old-time slavery, the Revolution abolishes at one stroke the sword of the executioner, the seal of the magistrate, the club of the policeman, the gunge of the exciseman, the erasing-knife of the department clerk, all those insignia of Politics, which young Liberty grinds beneath her heel.” — Proudhon.
+> “In abolishing rent and interest, the last vestiges of old-time slavery, the Revolution abolishes at one stroke the sword of the executioner, the seal of the magistrate, the club of the policeman, the gunge of the exciseman, the erasing-knife of the department clerk, all those insignia of Politics, which young Liberty grinds beneath her heel.” — Proudhon.
 
 * * *
 
