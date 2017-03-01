@@ -126,6 +126,7 @@ It became needless, moreover; an enormous block was loosened by the efforts of P
 
 Again all the guns singled him out, but the more ardent shot away the tops of rocks around his body, without doubt because of the virulence of the hurricane which juggled the bullets and shook the muskets like pliant branches of shrubbery in the firmest hands, and all the more then the hands of the marksmen whom the hasheesh had enervated.
 
+
 Nevertheless, two, three projectiles successively penetrated his uniform, and blood stained his shoulder and ran over his chest; but he did not bend for that, but continued the arduous ascent, encouraging his subordinates.
 
 “Forward! forward!” repeated he.
@@ -425,7 +426,9 @@ Of the torch-bearers of liberty and justice in this country, none is greater or 
 
 Into the value of his “Law of Prices,” “Universal Wealth,” etc., and that masterpiece of research, logic, and close reasoning of the end of his days, his “Letter to Grover Cleveland,” I have not space to enter. They are all, however, but applications and illustrations of the principles laid down in “Natural Law.”
 
-Though the recognition of the principles of justice and truth is not all that is necessary to morality (these principles must become part and parcel of men’s natures — in other words, they must become *sentiments* — before they are effective moral agents), still the recognition of the principles of right conduct is a very important step, and the first step, towards right conduct, and this step Lysander Spooner much as any man in our century has helped us to take. The best tribute we can pay to his memory, the best proof that we can give that we really appreciated him, is to continue, if not with the same ability, still with all the ability we possess, the work to which he devoted his life. That your meeting may help to promote this work is the ardent hope of yours sincerely,	GERTRUDE B KELLY.
+Though the recognition of the principles of justice and truth is not all that is necessary to morality (these principles must become part and parcel of men’s natures — in other words, they must become *sentiments* — before they are effective moral agents), still the recognition of the principles of right conduct is a very important step, and the first step, towards right conduct, and this step Lysander Spooner much as any man in our century has helped us to take. The best tribute we can pay to his memory, the best proof that we can give that we really appreciated him, is to continue, if not with the same ability, still with all the ability we possess, the work to which he devoted his life. That your meeting may help to promote this work is the ardent hope of yours sincerely,
+
+Gertrude B. Kelly.
 
 61 East Seventh St., New York, May 27, 1887.
 
