@@ -354,7 +354,7 @@ The single instance of Wells, Fargo & Co., cited by B. R. Tucker to prove the ad
 
 This restatement of my statement is fair enough, except that it but dimly conveys the idea that Wells, Fargo & Co. were carrying, not only to distant and sparsely populated places, but to places thickly settled and easy of access, and were beating the government there also,— a fact of no little importance.
 
-Several facts may explain this: 1, Undeveloped government service in a new country, distant from the seat of government.
+Several facts may explain this: 1, undeveloped government service in a new country, distant from the seat of government.
 
 Here the ghost appears, all form and no substance. John Jones is a better messenger than John Smith, declares the Winsted Press because Jones can run over stony ground while Smith cannot. Indeed! I answer; why, then, did Smith outrun Jones the other day in going from San Francisco to Wayback? Oh! that may be explained, the Press rejoins, by the fact that the ground was stony. The Press had complained against the Anarchistic theory of free competition in postal service that private enterprise would not reach remote points, while government does reach them. I proved by facts that private enterprise was more successful than government in reaching remote points. What sense, then, is there in answering that these points are distant from the government’s headquarters and that it had not developed its service? The whole point lies in the fact that private enterprise was the first to develop its service and the most successful in maintaining it at a high degree of efficiency.
 
