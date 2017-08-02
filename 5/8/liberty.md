@@ -1,4 +1,4 @@
-﻿> They never fail who die
+> They never fail who die
 >
 > In a great cause: the block may soak their gore;
 >
