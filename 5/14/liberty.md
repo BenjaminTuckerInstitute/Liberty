@@ -254,7 +254,7 @@ As a result, either no social revolution, or no more government; such is our sol
 
 #### Translated from the French for Liberty by Sarah E. Holmes.
 
-##### Continued from No. 116.
+##### Continued from No. 117.
 
 Yes, once more, anything rather than a prolongation of this trial, anything: from the Irish who, recognizing her, would kill her,— that is to say, finish her, for was she not already three-quarters dead? — to the soldiers who might treat her as the respected Duchess or as an infamous girl of the streets, it mattered little to her, provided this agony of the damned would cease! And, contenting herself no longer with passively watching the opportunity, she decided to run after it as fast as she could, continuing to loudly proclaim her torturing distress so that she might be heard from afar.
 
