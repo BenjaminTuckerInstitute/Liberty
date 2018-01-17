@@ -70,7 +70,7 @@ Panurge’s sheep, and men, are the only animals that carry servility and stupid
 
 ### The Basket.
 
-###### Continued from No. 123.
+##### Continued from No. 123.
 
 Indignant at himself, he dealt his chest a rude blow; then he continued:
 
@@ -338,6 +338,7 @@ The agnostic admits — indeed insists — that both right and wrong are correct
 > And well their oars keep time
 >
 > To one who sings (and clanks his chain,
+
 >
 > The better thus to hide his pain)
 >
