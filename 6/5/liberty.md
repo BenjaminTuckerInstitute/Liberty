@@ -670,7 +670,7 @@ Your Correspondent says that I exhibit a sovereign contempt for society. He is c
 
 To be continued.
 
-/* With the limitation just stated, of course, that you do not throw burdensome consequences on me.
+\* With the limitation just stated, of course, that you do not throw burdensome consequences on me.
 
 ## Cranky Notions.
 
