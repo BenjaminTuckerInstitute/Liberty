@@ -18,7 +18,7 @@ The New York “Alarm” attempts to be satirical concerning the stuff of which 
 
 ### [Rouxel in the Journal des Economistes.]
 
-There is inequality in nature, but it is a moderate, orderly inequality; excessive inequality, great poverty by the side of extreme wealth, is the work of the State. It is only in its shadow that, flying the flag of solidarity, the egoism of some fails to be cheeked by that of others. How, then, is it possible for the State to remedy this wrong?
+There is inequality in nature, but it is a moderate, orderly inequality; excessive inequality, great poverty by the side of extreme wealth, is the work of the State. It is only in its shadow that, flying the flag of solidarity, the egoism of some fails to be checked by that of others. How, then, is it possible for the State to remedy this wrong?
 
 ## Crispus Attucks.
 
