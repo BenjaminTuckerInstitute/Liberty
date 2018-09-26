@@ -176,7 +176,7 @@ The knave may be the stronger and more skilful of the two,— that is, the conqu
 
 For one of these civilized crimes, then, the two old school friends, the two rivals who had already fought over a love affair, met a second time at the Porte Maillot. In those days fighting was still allowed in the Bois de Boulogne.
 
-Wood was cut there also; there peaceful labor often met quarrelsome idleness. On this particular day a poor wrood-cutter was there, making his poor fagots, as Piron would say, with his poor child. His pale wife brought him his meagre sustenance, a breakfast of bread and cheese to revictual him, after two hours’ work in the morning mist.
+Wood was cut there also; there peaceful labor often met quarrelsome idleness. On this particular day a poor wood-cutter was there, making his poor fagots, as Piron would say, with his poor child. His pale wife brought him his meagre sustenance, a breakfast of bread and cheese to revictual him, after two hours’ work in the morning mist.
 
 Seeing a carriage stop at the crossing of the roads and three persons get out, the wood-cutter said to his wife:
 
@@ -272,7 +272,7 @@ She was about to survey and question him when he seized her by the arm and pushe
 
 “Come, start at once,” said he, “there is no time to lose.”
 
-“But, Monsieur,” protested the midwife, “I must first know”. . . 
+“But, Monsieur,” protested the midwife, “I must first know”. . .
 
 “It is useless, time is pressing, the carriage waits, we will talk on the way.” Willy-nilly, Mme. Potard had to go out and follow her customer.
 
@@ -286,13 +286,13 @@ The man, who concealed his face under his high collar, explained his business in
 
 “I said disappear,” repeated the stranger.
 
-“Oh! Monsieur,” replied the midwife, “you take me”. . . 
+“Oh! Monsieur,” replied the midwife, “you take me”. . .
 
 “For what you are,” said the man, drily.
 
-“But”. . . 
+“But”. . .
 
-“How much do you ask? One thousand dollars”. . . 
+“How much do you ask? One thousand dollars”. . .
 
 “That would be nothing at all," Mme. Potard could not help crying.
 
@@ -310,7 +310,7 @@ The man remained silent.
 
 “Are you the master of the house?”
 
-The man leaned over toward the midwife and spoke a word in her ear. “Indeed!” she exclaimed. “Then you”. . . 
+The man leaned over toward the midwife and spoke a word in her ear. “Indeed!” she exclaimed. “Then you”. . .
 
 “Hush!” said the other. “And now let us come to an understanding.”
 
@@ -388,7 +388,7 @@ A month after Frinlair’s death, Baron Hoffmann and his daughter were sitting i
 
 The baron raised his head, saying in an undertone:
 
-“His guardianship account is completed. . . I hold my madman, hold him in spite of everything, tied hand and foot”. . . 
+“His guardianship account is completed. . . I hold my madman, hold him in spite of everything, tied hand and foot”. . .
 
 And aloud to Claire he said, pointing to the jewels:
 
@@ -452,7 +452,7 @@ And feverishly drawing nearer to her father, she asked:
 
 “Of a working-girl?” repeated Claire, her illusions vanishing.
 
-“Of a dressmaker,” explained M. Hoffmann, “and recently, if I am not mistaken, at a masquerade supper, followed by that duel”. . . 
+“Of a dressmaker,” explained M. Hoffmann, “and recently, if I am not mistaken, at a masquerade supper, followed by that duel”. . .
 
 Claire starting to go away, he had to hold her back.
 
@@ -514,7 +514,7 @@ And she added with design:
 
 “You!” cried Claire, opening her eyes wide and not believing her ears.
 
-“Yes, Mademoiselle,” said Marie, with all the simplicity of her innocence, “a baby that I have adopted”. . . 
+“Yes, Mademoiselle,” said Marie, with all the simplicity of her innocence, “a baby that I have adopted”. . .
 
 “A fine thing to do at your age,” observed the baron, ironically.
 
@@ -538,7 +538,7 @@ Then, changing his tone and folding his arras, he continued:
 
 “Beautiful, but expensive,” sneered the banker.
 
-“Yes, Monsieur,” concluded Marie, “and I need money this very day to pay the nurse who brought me the baby. So I beg you, Mademoiselle, if it is not too much trouble”. . . 
+“Yes, Monsieur,” concluded Marie, “and I need money this very day to pay the nurse who brought me the baby. So I beg you, Mademoiselle, if it is not too much trouble”. . .
 
 The baron went straight up to her and said rapidly and sternly:
 
@@ -574,7 +574,7 @@ Liberty has done me a great service in carrying me from the metaphysical specula
 
 The particular matter upon which we have exchanged letters — the question of non-resistance — is still in my mind, but it is hard for me to find time to write anything for publication. Perhaps it is even premature.
 
-Of course I see very clearly that economically Anarchism is complete without including any question as to force or noforce at all: but the importance of preaching one or the other as a means of obtaining or perpetuating Anarchy has not diminished in my mind.
+Of course I see very clearly that economically Anarchism is complete without including any question as to force or no-force at all: but the importance of preaching one or the other as a means of obtaining or perpetuating Anarchy has not diminished in my mind.
 
 People invariably feel, if they do not ask: “How are you going to accomplish it?” And I think the question is valid.
 
@@ -650,7 +650,7 @@ John Morley in his book on “Compromise” (a work, by the way, which I would e
 
 The time has always come, and the season is never unripe, for the announcement of the fruitful idea. The fact of a new idea having come to one man is a sign that it is in the air. The new idea does not spring up uncaused and by miracle. If it has come to him, there must be others to whom it has only just missed coming. If he has found his way to the light, there must be others groping after it very close in his neighborhood. His discovery is their goal. The fact that the mass are not yet ready to receive, any more than to find, is no reason why the possessor of the new truth should run to hide under a bushel the candle which has been lighted for him. If the time has not come for them, at least it has come for him. No man can ever know whether his neighbors are ready for change or not. He has all these certainties, at least; that he himself is ready for the change; that he believes it would be a good and beneficent one; that, unless some one begins the work of preparation, assuredly there will be no consummation; and that, if he declines to take a part in the matter, there can be no reason why every one else in turn should not decline in like manner, and so the work remain forever unperformed. He who acts just as if the truth were not in him does for the ideas with which he sees the very thing which the acute persecutor does for the is which he dislikes — he extinguishes beginnings and kills the germs.
 
-Similar ideas and sentiments are warmly defended by Emerson, George Eliot, and others, but it would be useless to multiply quotations. Only when possessors of truth cannot freely speak without risk of serious personal injury are they absolved from the duty of unreserved advocacy. But such cases properly come within the question of harmonizing conduct with opinions, and need not be here introduced. I only insist that what Mr. Tucker defined as “the real question” is really no question at all to thinkers and students, they all agreeing that it cannot be in the interest of truth to refrain from “telling the whole of it,” even though nothing obliges us to suppress any part, and that those to whom it is still a question are, as Mr. Toots would say, “of no consequence.” 
+Similar ideas and sentiments are warmly defended by Emerson, George Eliot, and others, but it would be useless to multiply quotations. Only when possessors of truth cannot freely speak without risk of serious personal injury are they absolved from the duty of unreserved advocacy. But such cases properly come within the question of harmonizing conduct with opinions, and need not be here introduced. I only insist that what Mr. Tucker defined as “the real question” is really no question at all to thinkers and students, they all agreeing that it cannot be in the interest of truth to refrain from “telling the whole of it,” even though nothing obliges us to suppress any part, and that those to whom it is still a question are, as Mr. Toots would say, “of no consequence.”
 
 **V\. Y\.**
 
@@ -722,7 +722,7 @@ As regards all the rest of mankind, they have no right whatever under this doctr
 
 We come now to the still higher sphere, to the transcendental ethical sphere, where Mr. James commonly thinks and writes and figures. It is here that he usually talks of marriage, and by marriage in this sense I understand him to mean: *whatsoever right conjunction of the counterparting factors of life; either as abstract principles, or in the realm of concrete personality.* Marriage in this sense is what I mean by trinism, the reconciliative harmony of opposites. The idea is Swedenborgian, is Jamesian, is universological. In it I believe most religiously; for it I work most assiduously; to it I would lead all mankind; and in the effort to that end I recognize and fellowship Mr. James most heartily. He may, and I think probably would, define this spiritual, ethical, metaphysical marriage in a technical and somewhat narrow *doctrinaire* sense which I should reject; and here I think is another point of our real differences; and here, to make a clean breast of it, I think he may, perhaps, have something yet to learn from me. If he accepts the above definition, and if he will leave the questions: *What are the counterparting factors of life,* and *What is a right adjustment of them,* open to free scientific investigation, not imposing on the inquirer any *doctrinaire* interpretation of them, we can start fair; and I shall have many words, when the time comes, to utter about this matter.
 
-But it seems to me a pity that Mr. James, with such a meaning of marriage, should never notify his readers when he passes to and fro between it and the common vulgar idea of statute marriage; the confusion so induced sometimes seeming to make of his writings a brilliant kaleidoscope of mysticism, instead of a body of intelligible instruction. For example, take this sentence: “Thus your doctrine has both a negative or implicit force, as addressed to the making *marriage* free by progressively enlarging the grounds of divorce; and a positive or explicit force, as addressed to the making love free, by denying its essential subordination to marriage.” 
+But it seems to me a pity that Mr. James, with such a meaning of marriage, should never notify his readers when he passes to and fro between it and the common vulgar idea of statute marriage; the confusion so induced sometimes seeming to make of his writings a brilliant kaleidoscope of mysticism, instead of a body of intelligible instruction. For example, take this sentence: “Thus your doctrine has both a negative or implicit force, as addressed to the making *marriage* free by progressively enlarging the grounds of divorce; and a positive or explicit force, as addressed to the making love free, by denying its essential subordination to marriage.”
 
 The word marriage is used here in two senses as if they were one; first, in the ordinary sense, and, second, to mean the true rational adjustment of the relations of love; and it is against this last, which he identifies first (at least as a factor) with “society” (meaning the highest ideal well-bring and true order of society), and then with “God,” the ideal personal author of this system of true order, that Mr. James supposes the free lovers to be in revolt (in addition to their revolt, in which he concurs, against the outward restrictions of enforced marriage in the lower sense).
 
@@ -730,117 +730,117 @@ The only solution I can think of (at first I could think of none) of this seemin
 
 The mere agitators for free love are for the most part those who have not risen to the consideration of the ulterior questions involved in the true uses of freedom, any more than slaves struggling for freedom enquire what line of conduct they will pursue, or what considerations they will abide by in deciding their conduct, when free; and it is a pure gratuity to assume that they have decided against any moral course whatever.
 
-Pope puts into the mouth of Eloise the following startling words: (Pope’s Poetical Works, vol. i., p. 125.) 
+Pope puts into the mouth of Eloise the following startling words: (Pope’s Poetical Works, vol. i., p. 125.)
 
 > How oft, when pressed to marriage, have I said,
 >
-> Curse on all laws but those which love has made! 
+> Curse on all laws but those which love has made!
 >
-> Love, free as air, at sight of human ties, 
+> Love, free as air, at sight of human ties,
 >
-> Spreads his light wings, and in a moment flies. 
+> Spreads his light wings, and in a moment flies.
 >
-> Let wealth, let honor, wait the wedded dame, 
+> Let wealth, let honor, wait the wedded dame,
 >
-> August her deed, and sacred be her name; 
+> August her deed, and sacred be her name;
 >
-> Before true passion all those views remove; 
+> Before true passion all those views remove;
 >
-> Fame, wealth, and honor! What are you to love? 
+> Fame, wealth, and honor! What are you to love?
 >
-> The jealous God, when we profane his fires, 
+> The jealous God, when we profane his fires,
 >
-> Those restless passions in revenge inspires, 
+> Those restless passions in revenge inspires,
 >
-> And bids them make mistaken mortals groan, 
+> And bids them make mistaken mortals groan,
 >
-> Who seek in love for aught but love alone. 
+> Who seek in love for aught but love alone.
 >
-> Should at my feet the world’s great Master fall, 
+> Should at my feet the world’s great Master fall,
 >
-> Himself, His throne, His world, I’d scorn them all: 
+> Himself, His throne, His world, I’d scorn them all:
 >
-> Not Caesar’s empress would I deign to prove; 
+> Not Caesar’s empress would I deign to prove;
 >
-> No, make me *mistress* to the man I love; 
+> No, make me *mistress* to the man I love;
 >
-> If there be yet another name more free, 
+> If there be yet another name more free,
 >
-> More fond than mistress, make me that to thee! 
+> More fond than mistress, make me that to thee!
 >
-> Oh, happy state! when souls each other draw, 
+> Oh, happy state! when souls each other draw,
 >
-> When love is liberty, and nature law: 
+> When love is liberty, and nature law:
 >
-> All then is full, possessing and possessed, 
+> All then is full, possessing and possessed,
 >
-> No craving void left aching in the breast; 
+> No craving void left aching in the breast;
 >
-> Even thought meets thought, ere from the lips it part, 
+> Even thought meets thought, ere from the lips it part,
 >
-> And each warm wish springs mutual from the heart. 
+> And each warm wish springs mutual from the heart.
 >
-> This sure is bliss (if bliss on earth there be), 
+> This sure is bliss (if bliss on earth there be),
 >
 > And once the lot of Abelard and me.
 
-The most exalted pythoness of free love of our day has never said more or gone farther than this: and yet a few pages farther on in this poem, this same rebel against marriage in the lower sense, as by the laws of man, is found struggling desperately with her own sense of right in the higher court of conscience, or as related to ethical truth; which, with her, held the from of obedience to God. Read the following in this vein: 
+The most exalted pythoness of free love of our day has never said more or gone farther than this: and yet a few pages farther on in this poem, this same rebel against marriage in the lower sense, as by the laws of man, is found struggling desperately with her own sense of right in the higher court of conscience, or as related to ethical truth; which, with her, held the from of obedience to God. Read the following in this vein:
 
-> Ah, wretch! believed the spouse of God in vain, 
+> Ah, wretch! believed the spouse of God in vain,
 >
-> Confessed within the slave of love and man. 
+> Confessed within the slave of love and man.
 >
-> Assist me, heaven! but whence arose that prayer? 
+> Assist me, heaven! but whence arose that prayer?
 >
 > Sprung it from piety, or from despair?
 >
-> E’en here, where frozen chastity retires, 
+> E’en here, where frozen chastity retires,
 >
-> Love finds an altar for forbidden fires. 
+> Love finds an altar for forbidden fires.
 >
-> I ought to grieve, but cannot as I ought; 
+> I ought to grieve, but cannot as I ought;
 >
-> I mourn the lover, not lament the fault; 
+> I mourn the lover, not lament the fault;
 >
-> I view my crime, but kindle with the view, 
+> I view my crime, but kindle with the view,
 >
-> Repent old pleasures, and solicit new; 
+> Repent old pleasures, and solicit new;
 >
-> Now turned to heaven, I weep my past offence. 
+> Now turned to heaven, I weep my past offence.
 >
-> Now think of thee, and curse my innocence. 
+> Now think of thee, and curse my innocence.
 >
-> Of all affliction taught a lover yet, 
+> Of all affliction taught a lover yet,
 >
-> ’Tis sure the hardest science to forget! 
+> ’Tis sure the hardest science to forget!
 >
-> How shall I love the sin, yet keep the sense, 
+> How shall I love the sin, yet keep the sense,
 >
-> And love the offender, yet detest the offence? 
+> And love the offender, yet detest the offence?
 >
-> How the dear object from the crime remove, 
+> How the dear object from the crime remove,
 >
-> Or how distinguish penitence from love? 
+> Or how distinguish penitence from love?
 >
-> Unequal task! a passion to resign, 
+> Unequal task! a passion to resign,
 >
-> For hearts so touched, so pierced, so lost as mine. 
+> For hearts so touched, so pierced, so lost as mine.
 >
-> Ere such a soul regains its peaceful state, 
+> Ere such a soul regains its peaceful state,
 >
-> How often must it love, how often hate! 
+> How often must it love, how often hate!
 >
-> How often hope, despair, resent, forget, 
+> How often hope, despair, resent, forget,
 >
-> Conceal, disdain, – do all things but regret! 
+> Conceal, disdain, – do all things but regret!
 >
-> But let heaven seize it, all at once ’tis fired; 
+> But let heaven seize it, all at once ’tis fired;
 >
-> Not touched, but wrapt; not weakened, but inspired! 
+> Not touched, but wrapt; not weakened, but inspired!
 >
-> O come! O teach me Nature to subdue, 
+> O come! O teach me Nature to subdue,
 >
-> Renounce my love, my life, myself – and you; 
+> Renounce my love, my life, myself – and you;
 >
 > Fill my fond heart with God alone, for He
 >
@@ -852,7 +852,7 @@ To be continued.
 
 ### [Edward Carpenter in the Fortnightly Review.]
 
-Every human being grows up inside a sheath of custom, which enfolds it as the swathing-clothcs enfold the infant. The sacred customs of one’s own early home, how fixed and immutable they appear to the child! It surely thinks that all the world in all times has proceeded on the same lines which bound its tiny life. It regards a breach of these rules (some of them at least) as a wild step in the dark, leading to unknown dangers.
+Every human being grows up inside a sheath of custom, which enfolds it as the swathing-clothes enfold the infant. The sacred customs of one’s own early home, how fixed and immutable they appear to the child! It surely thinks that all the world in all times has proceeded on the same lines which bound its tiny life. It regards a breach of these rules (some of them at least) as a wild step in the dark, leading to unknown dangers.
 
 Nevertheless its mental eyes have hardly opened ere it perceives, not without a shock, that, whereas in the family dining-room the meat always precedes the pudding, below-stairs and in the cottage the pudding has a way of coming before the meat; that, whereas its father puts the manure on the top of his seed-potatoes in spring, his neighbor invariably places his potatoes on top of the manure. All its confidence in the sanctity of its home life and the truth of things is upset. Surely there must be a right and a wrong way of eating one’s dinner or of setting potatoes, and surely, if any one, “father” or “mother” must know what is right. The elders have always said (and indeed it seems only reasonable) that by this time of day everything has been so thoroughly worked over that the best methods of ordering our life — food, dress, domestic practices, social habits, &c. — have long ago been determined. If so, why these divergencies in the simplest and most obvious matters?
 
@@ -881,4 +881,3 @@ And, indeed, it is obvious that for true vitality custom must be laid aside. For
 Possibly this is a law of history,— that, when man has run through every variety of custom, a time comes for him to be freed from it,— that is, he uses it indifferently according to his requirements, and is no longer a slave to it. At this point, whenever reached, “morals” come to an end and humanity takes its place,— that is to say, there is no longer any code of action, but the one object of all action is the deliverance of the human being and the establishment of equality between oneself and another, the entry into a new life, which new life, when entered into, is glad and perfect, because there is no more any effort or strain in it, but it is the recognition of oneself in others, eternally.
 
 Far as custom has carried man from man, yet when at last in the ever-branching series the complete human being is produced, it knows at once its kinship with all the other forms. “I have passed my spirit in determination and compassion round the whole earth, and found only equals and lovers.” More, it knows its kinship with the animals. It sees that it is only habit, an illusion of difference, that divides; and it perceives after all that it is the same human creature that flies in the air, and swims in the sea, or walks biped upon the land.
-
