@@ -442,7 +442,7 @@ And leaping with him into a cab, he shouted to the driver:
 
 #### Chapter XIII.
 
-### At the Delegations.
+#### At the Delegations.
 
 The commissary of police, having recovered from the shock of this exciting arrest, reentered his office and began to draw up his official report with the tranquil indifference usual to his function.
 
@@ -471,166 +471,6 @@ The commissary imposed silence upon them, saying:
 “No, Monsieur.”
 
 “You deny again; very well; we will pass on.”
-
-Continued on page 6.
-
-> “In abolishing rent and interest, the last vestiges of old-time slavery, the Revolution abolishes at one stroke the sword of the executioner, the seal of the magistrate, the club of the policeman, the gunge of the exciseman, the erasing-knife of the department clerk, all those insignia of Politics, which young Liberty grinds beneath her heel.” — Proudhon.
-
-***
-
-The appearance in the editorial column of articles over other signatures than the editor’s initial indicates that the editor approves their central purpose and general tenor, though he does not hold himself responsible for every phrase or word. But the appearance in other parts of the paper of articles by the same or other writers by no means indicates that he disapproves them in any respect, such disposition of them being governed largely by motives of convenience.
-
-***
-
-In consequence of an illness of the editor, from which he has not yet fully recovered, the present issue of Liberty contains little or nothing from his pen and is long delayed in its appearance. He hopes to be soon at his desk again, and to publish the following number more nearly on time.
-
-## Freedom and Development.
-
-A Denver correspondent of the “Workmen’s Advocate,” Henry Cohen, deals mechanical and compulsory Socialism a mortal blow in the following very brief communication:
-
-State Socialists are fond of quoting the following from Spencer’s “Ethics”: “The relation of structures are actually such that by the help of a central regulative system each organ is supplied with blood in proportion to the work it does.”
-
-The stomach, liver, brain, etc., did not have to elect this central regulative system in the body physical. It was a system of “cold, universal *laissez faire*,” as Carlyle would say. If the body physical has been able to develop under a free system to this highly advanced state, what reason have Socialists for believing that the body politic will not develop in the same way, if the same system of freedom would prevail?
-
-The editor of the “Advocate” attempts to reply:
-
-It is a revelation to hear that State Socialists are fond of quoting Spencer, although many do recognize an improvement in his “Ethics” over his “Social Statics.” The comparison of the unconscious organs of the human body with intelligent beings, however, is a dernier resort, although perhaps quite applicable in isolated cases. A part of the very liberty which our correspondent evidently craves is the intelligence requisite to creating or preparing conditions under which progress is made. It was by the exercise of intelligence that the Spartans, for instance, developed their physical excellence; and it was by the benumbing influence of *laissez faire* that the Romans became degraded. The highest physical development is attained through the highest applied intelligence.
-
-Now, the information of the able editor is very limited indeed if he is not even aware that in Gronlund’s “Coöperative Commonwealth” (a work recommended by Socialist journals as the best exposition of their creed) Spencer is called the father of constructive Socialism, and his analogy between a physical organism and society pronounced the basis of the new philosophy of human relations. In attributing the decay of Rome to the principle of individualism he shows as much acquaintance with history as he reveals of penetration in ascribing the present evils to a superabundance of personal liberty. With regard to the main question, nobody doubts that the highest development is attained through the highest applied intelligence; but society being simply an aggregation of individuals with separate individual minds, not a real entity possessing an intelligence of its own, the dispute is as to who shall determine what does and what does not tend to the elevation and progressive improvement of the body social. Each individual member of society having his own private conception not only of his personal happiness, but of the highest good of the social organism, the question naturally arises whether the individual ought not to be free to follow his inclinations and enlightened judgment. Should the principles of social existence be defined by the ballot-box and the brute force back of it, or shall we trust to the spontaneous sympathies and sober sense of men for the voluntary recognition of equal liberty and equity? To decide right by force may seem very convenient, but it is not philosophical, scientific, or even safe. The Anarchist, realizing that the interests of rational beings are identical, that the social instinct revolts against injustice and urges solidarity and impartiality, and that liberty invariably conduces to the cultivation of a sense of responsibility and self-discipline, does not hesitate to reject all authoritarian methods of securing the reign of justice and equality. The evolutionary philosophy and the policy of State Socialism can never be reconciled. A consistent evolutionist is an Anarchist, and a philosophical Anarchist is an evolutionist.
-
-**V\. Y\.**
-
-## Neither Life Nor Death.
-
-Only a newspaper item:
-
-Clarence Gore, eighteen years old, strong, and comfortably dressed, was arrested Saturday night for begging. He told Justice Patterson at the Jefferson market court this morning that he had arrived from Illinois on Thursday, couldn’t find work, and was without money. “No reason why you should beg,” said the justice. “Fined ten dollars.”
-
-As we know no other way of obtaining the means of subsistence than either work, begging, or stealing, and as a man deprived of the opportunity of work is declared by the sapient justice to still be without excuse for begging, it would seem that the solemn representative of law and order covertly recommends theft. Yet this is hardly possible; and doubtless, had this same man been arraigned for robbery, he would have received a very severe punishment. What, then, is to be done? What becomes of the right to life guaranteed by the Constitution? Evidently nothing is left to the modern victims of capitalistic exploitation and usurpation but to seek deliverance in death. The right to life having become a dead letter, an empty phrase, must we make use of the right to death? But no such right exists. Suicide is a crime, since the citizens belong, not to themselves, but to the final owner of all, the State. So it is our duty to live, though we are not allowed to do anything that would enable us to perform our duty. The question is no longer “To be or not to be?” but we are required to discover a state which would be neither being nor not-being. The *bourgeois* world has long been a stage for heart-rending tragedy; is it now developing into a farcical absurdity?
-
-**V\. Y\.**
-
-## Ricardo’s Theory of Rent.
-
-*To the Editor of Liberty:*
-
-The effort of Mr. Yarros in your issue of January 19 to establish “a better mutual understanding as to the meaning attached to the term Anarchism” brings us no nearer to this point, from the fact that the definition he gives is indefinite. No distinction is shown between social and political non-interference, both terms relating to the conduct of an association of persons. Nor can equity be urged as a distinguishing feature, since political interference may be, and frequently is, of an equitable character, hence in harmony with the law of equal freedom. Even the plea for the reign of free contract does not help the case, since the offer of rent for an exchange of unequal local advantages is a feature of free competition, and contracts resulting from such offers are condemned by the advocates of occupying land-ownership.
-
-In accepting my view of the law of equal liberty Mr. Yarros is placed in a predicament. He either must leave it to each individual to determine whether the acts of others infringe his liberty and to apply the remedy according to his judgment, no matter how much this judgment may be warped, or he must recognize some organization to which is delegated the power to restrain transgressors.
-
-The “humanitarian” method of bringing a criminal to terms by “withholding the abundant and inestimable benefits of citizenship” has from its brutality been abandoned by most communities. Next to torture, outlawing has been the most severe punishment. Since equal freedom can be secured only by agreement, the exclusion of any one from its benefits implies the withdrawal of all protection, without which personal safety is precarious and the right of ownership inconceivable. Then, who would not rather have a portion of his wealth confiscated than have the whole of it outlawed? Invasion under such circumstances is more humanitarian than complete alienation.
-
-Furthermore I must repeat that the “quantitative importance” has no bearing upon the question as to the attitude society should assume in relation to rent. A question of principle is here involved. Where an exclusive right to the use of land is recognized, an economic power, born of self-interest, and against which all social agreements are powerless, will prompt the offer of rent. “The problem society has to solve” consists, not in the suppression of this offer, but in its regulation. The question, therefore, asserts itself, shall this rent benefit the few, or shall it go to all those whose presence requires the use of inferior opportunities, making rent possible for better grades? The issue must be squarely met. Shall favoritism prevail, or shall the burdens as well as the benefits of association be equitably distributed?
-
-“Economic rent cannot be called a social wrong.” The wrong consists in the despotism that secures this rent to the few, whether they be the owners or the occupiers of superior opportunities.
-
-The supposition that the expense of collecting the rent exceeds the sum total of the rents to be collected can be met by the fact that collectors willingly undertake the work of collecting rent at commissions of even less than ten per cent.
-
-In assailing Ricardo’s teachings he condemns the truths promulgated as well as his errors. If nothing of a tangible nature has been offered by Ricardo, I fail to see how any one can “revolt against the absolute maxims” of that school. Can we conceive a more rational proposition than that the value of those things that are constantly reproduced will tend towards the cost of production, where production is continued under the least favorable conditions, and that those producing under more favorable conditions will be able to sell their products at a profit? The bitterness of Mr. Yarros towards Ricardo might subside, could he but see how successfully this law can be wielded against the modern theory of finance and capital profit.
-
-In order to reconcile “the signal contradiction and opposition between the logic of international free trade and the logic of inland taxation of rent” it must first be shown that there is such a contradiction. In my opinion the nationalization of rent will be the natural outcome of free competition under a social organization based upon the law of equal liberty.
-
-How can the desirable cost-principle of value be introduced, if, for illustration, the better wheat costs less to produce than the poorer? Should we shackle competition so that the superior must be sold at a lower price than the inferior? Of course not. Then a natural solution should rather be welcomed than repelled. If, under free competition, those who compete for the control of the chances to raise the better wheat (which, as premised, requires less labor to raise than the poorer) are willing to pay for the privilege, in the form of rent, an amount that will raise the cost of production practically to the market value, realizing the cost principle of value, why should we insist upon reserving this opportunity for the favored few, and not give it to those who are willing to pay the most for it?
-
-The maxims of the new school, in so far as they are directed against economic laws which are beyond human control, are conducive to social stability no more than the present belief in the reproductive powers of capital, and a proper understanding of and adherence to equity remains the only way enabling the establishment of a stable form of society.
-
-**Egoist.**
-
-## Egoist’s Errors.
-
-Of course I must believe Egoist when he states that my “effort” to advance the discussion resulted, so far as its effect upon him was concerned, in failure; but I assert that it is due to no fault of mine. My definition was as definite and clear as it is possible to give to a term covering such a broad and complex and intricate movement as Anarchism. With the average “intelligent reader,” the *raison d’être* of Anarchism is found in an impatience with a system burdened and loaded down with wrong and abuse and a desire, far more intense than philosophical, to reduce the whole to ashes in the space of twenty-four hours. He therefore takes it upon himself to reason with the deluded Anarchists about the impossibility, the uselessness, the undesirability, the risk, and the danger of such a sudden and thorough reconstitution of entire society. Heaven and earth are moved in the worthy endeavor to instil in our minds the common sense which is essential to one who in reform would remain on this side of the line between sober and rational progressives and abandoned Utopians or reckless fanatics. Everything has been tried,— argument, appeal, invective, satire, irony, ridicule,— for this end, and we are bound to say that, if nothing else, such perseverance and anxiety are highly gratifying as fresh evidence of the love and good-will with which the human heart overflows. But the trouble with the intelligent reader in that he exhausts his priceless energies in attacks upon shadows, and entreats us to cease and repent of that which we never began and professed. By turning his attention to himself he would, with one-tenth the strain, succeed in correcting his own erroneous impressions and so really contribute toward the possibility of an intelligent canvass of the issues involved in Anarchism.
-
-Egoist having manifested a decided inclination to rehearse the part of the aforesaid intelligent reader, I thought it advisable to explain in a general way just what our grounds and anticipations and aspirations are. It was chiefly my intention to make it clear that the evolutionary standpoint is the only one from which the scientific thinker may develop principles in opposition to authority and a reliance on liberty and voluntaryism. My distinction between political and social non-interference may not have been characterized by exemplary definiteness and precision, but these were not considered necessary in dealing with men not unfamiliar with the literature on subjects of political and social science. To readers of Mill and Spencer the vital difference between the passive and moral means which society employs and the direct brutal compulsion of government should be well known. Does not Egoist himself believe that social progress will be and mean in the future what it has in the past,— a gradual elimination of governmental violence and tyranny and a substitution therefor of the benign influences of persuasion, public opinion, and example? Does he not hope and expect that equity and freedom, which undoubtedly are not now altogether absent from our relations (else, pray, how could an evolutionist conceive of their existence hereafter?), will pervade and penetrate society more and more, while the elements of servility, dishonesty, and constraint will shrink to smaller and smaller proportions till they all but cease to exist? If he does not, progress is to him a myth; if he does, his objections to my definition of Anarchism are utterly and astonishingly forceless.
-
-That in accepting Egoist’s view of the law of equal freedom I am placing myself in no “predicament,” I trust will be conceded in the light of Mr. Tucker’s elucidation of the matter in his comments on Egoist’s last letter to him. It is only through his sharing the absurd misconception of the intelligent reader in regard to our view of association and cooperation that he supposed me so placed.
-
-After laying down general principles, I took up the particular question of economic rent and showed that a society resting on mutuality and liberty would guide itself in settling difficulties arising out of natural obstacles and inequalities exclusively by the magnitude and extent of the evil born of the latter. Egoist does not (and I may confidently add, cannot) sustain the contrary. Yes, “a question of principle is here involved,” the principle of non-interference. Shall men possessed of a deep and well-founded distrust of artificialism and officialism nevertheless hasten to avail themselves of the same whenever any slight inequality due to purely external physical causes disturbs the social ideal of perfect equality of opportunity? Or shall they let well alone in all instances not very seriously affecting social stability? This question of “shall” of course resolves itself into the one of “will” or “are likely,” and to me it seems absolutely indisputable that they would then, as now most sensible men do, prefer to suffer from known evils than to try unknown ones.
-
-Is Egoist aware that economic rent is not the same as monopoly rent, and that our discussion is entirely confined to the former? If he is, why does he seek to introduce the irrelevant fact of collectors’ readiness to undertake the collection of rent at a commission of ten per cent. or less? The present systems of landholding and finance can hardly, I think, be compared to the system contemplated by us, with occupation and personal use as the title to land and an abundance of capital. Besides, the supposition that the expense of collection might exceed the proceeds accruing from the rent I only made “for the sake of the argument.”
-
-Egoist surprises me when he claims that no contradiction has as yet been found between land taxation and free trade. I had thought that the contradiction was plainly brought out in the quotation from Mr. Kelly subjoined to my first article upon the matter in hand. The fact that we do not pay for commodities transported here from distant places exactly or even nearly the cost of their production by ourselves argues against any mechanical distribution of economic rent. Why should not a difference in productive capacity call to a difference in function, thus rendering free and untaxed exchange between close neighbors as mutually advantageous as such exchange between States and nations is admitted to be? I feel no bitterness toward the Ricardian economists, any more than to any other class of narrow *doctrinaires*, and, while I should be intellectually interested to learn how Ricardian economics “can be wielded against the modern theory of finance,” such comfort could not bribe me into altering my objective estimate of the scientific merits or practical importance of their speculations.
-
-All of Egoist’s perplexities and confused notions seem to me to spring from one source,— the mistaken view he has formed of political economy. Without, probably, endorsing the boastful utterance of John Law regarding the superior position of political economy among the sciences, and without following Bonamy Price in defining political economy as an industrial code of practical laws and suggestions, Egoist yet looks upon it as a science more or less exact. He insists upon full practical application of the deductions and conclusion of the “authorities.” In truth, as Bagehot admirably puts it, political economy deals with hypothetical men under hypothetical conditions, not with real living beings in their actual relations and surroundings. It is mischievous as well as puerile to rigorously regulate life by the abstractions of this “science.” Arnold Toynbee (who pronounced Ricardo’s doctrine a “huge intellectual imposture”) protested strongly against the thoughtless talk so freely indulged in not only by complacent *bourgeois* in justification of their greed and inhumanity but by pseudo-economists and learned defenders of capitalism, to the effect that the maxims and laws of political economy must be implicitly obeyed and followed without regard to non-economic motives. Even Mill would now and then mildly express a similar disapproval. Political economy as a hypothetical science is one thing; real economic relations are quite a different thing. The first unquestionably has its uses; but in life that which the economic standpoint ignores or dismisses as “disturbing causes” or simple “exceptions” often have greater weight in determining our actions than the considerations taken cognizance of in political economy. Abstractly, the Ricardian theory presents great attractions to the mind, but the perverse complications of life damage fearfully the beauty and symmetry and faultless grace of that logical air-castle. Now, as *laissez faire* is safer than interference, as there are always more substantial reasons and more positive grounds required for action than for inaction, for innovation than for conservation, and as in doubtful cases the old has more right to respect than the untried, it appears reasonable to conclude that, until the advocates of confiscation of rent advance more incontestable and direct evidence of the connection between social evils and a system of free landholding (in our sense), our policy towards them should be one of passive resistance.
-
-**V\. Yarros.**
-
-## Cranky Notions.
-
-“Governments are necessary evils. This necessity arises out of the selfishness and stupidity of mankind.” This is what Charles Nordhoff says in his “Politics for Young Americans.” Tom Paine and Jefferson said the same thing before him. It is the political creed of millions of men who call themselves democrats, and it is believed by millions more who really do not know what they are. It has got to be an axiom with that school that sees the evils of government and is either too near-sighted or too timid to be reasonable and consistent with itself. Is it true that governments are necessary evils? Can a thing be necessary and evil at the same time? A thing that is necessary is absolutely essential. Food and air and shelter are things necessary for the existence of animal life. They cannot be dispensed with. It would be at least a stretch of imagination to say they were evils. And yet why not call these evils as well as any other necessary thing? Their necessity arises from our wants, just the same as any other necessity arises, and anything that satisfies wants can hardly be called an evil. It seems to me that the social democrats are more logical than Mr. Nordhoff and his kind. They hold that government is a necessary good. It strikes me that, if a thing be necessary, it must be good; and, *per contra*, evil things are not necessary. That government is an evil Mr. Nordhoff et als have clearly shown, and to be consistent they must declare against government, must declare for Anarchy. From this conclusion there seems to me no escape.
-
-### \* \* \*
-
-“But there must be taxes raised for public improvements, and there must be compulsion to make those pay who will not pay otherwise. How in the world would we build sewers without doing this?” This is what was put to me the other day, and it is put repeatedly as a stunner to the Anarchist. But are sewers necessary? Under freedom would people crowd together on twenty-feet lots, as they do in Cincinnati, on which possibly live half a dozen people? Think of it! half a dozen human beings living on a piece of land twenty feet wide by possibly eighty feet long! And they may be even thicker than that in New York, Chicago, and other cities. It seems incredible that under Anarchy such a condition could exist. The rational view seems to me that each family would have elbow-room were there no restrictions. A half an acre or so is not too much for a family merely for living purposes, and few families but what like to raise flowers or vegetables of some sort. Are sewers necessary where we are not crowded together like cattle in a car? The refuse that now runs through the sewers into the lakes and oceans is what is needed on the land to keep it productive, and how long can the land stand it to be drained of its productive power? The matter that accumulates around an ordinary household would not become offensive or dangerous, were the people not crowded so closely together. On the contrary, it would be the very means of enriching the soil and beautifying the home. Victor Hugo, in “Les Misérables,” says that Paris casts twenty million francs annually into the sea by means of its sewers, and estimates that France alone pours every year into the Atlantic a sum equal to five hundred millions of francs. Liebig says that the Campagna of Rome was ruined by the Roman drains. And we are told that the soil in China is still as youthful as in the days of Abraham, and Chinese wheat yields one hundred and twenty fold the sowing because drains and sewers are rare in China.
-
-### \* \* \*
-
-Just think of it! *only* 17,000 bills introduced in the last session of the United States congress! And the most painful thing about it is that only about 1,400 became laws. How our guardians at Washington can imagine we can get along without the balance of the 17,000 I really am at a loss to know. Goodness gracious! when they know that some people get rich by having laws passed in their interests, how could they overlook the importance of passing a bill for every individual in the country, and then, don’t you see, every one of us would be rich. This neglect on their part is certainly to be deplored; and I am inclined to think inexcusable. As it is now, I with others have to work in a badly ventilated room, where one either suffers from foul air and heat or pains caused by draughts of cold air. The industrial conditions that compel us workpeople to stand these things unfavorable to health and comfort are the result of laws, of course, but can’t our law manufacturers do as much as the man did who went to mill on a donkey and equalized the burden on the donkey’s back by putting the wheat in one end of the bag and stones in the other? What if we do get the end with the stones in? Isn’t the equalization of burdens a good thing? And can’t burdens be equalized by laws? If they can’t, what’s the use of having these law shops, pouring out to us the products of the hard-worked and poorly-paid employes with which they are filled? I imagine some fire-eating Anarchist will here try to interrupt me by the question as to who the donkey is in this case; but I don’t propose to be interrupted, and even if he does get in his impertinence, increased by copious draughts of vile whisky (Anarchists always drink vile whisky copiously), the only answer I’ve got for him is that it is none of his business. If the newspapers tell the truth (and I never heard one tell a lie), these lazy Anarchists don’t have any business, and therefore nothing is their business. They’re nothing but a lot of kickers, anyway. No matter where you find an Anarchist, he’s always got his heels flying. (Of course, you will understand this is poetic license. We’ve got to have a license for everything.) Now, over in France, a law was passed recently for the benefit of women and children. It prevented them from working nights in shops and factories, and also put a stop to their working Sundays and legal holidays. You know, France is honeycombed with these wretched Anarchists, and these women and children are some of them. And, of course, they are kicking about this law. Those who set type on morning newspapers, work in restaurants, in the great markets in Paris, and in other occupations, say it will throw them out of work, and that the government will not furnish them food, clothes, and shelter. Just as though it was the government’s business to furnish these things to people out of work! The evil of overwork is plain to every thinking person, and those who persist in it should be stopped by law. But, let me see; how is this? I am told that Anarchists don’t work. Oh, I see how it is. They are so contrary that, if they are not allowed to overwork themselves, they won’t work at all. Now, what is the reason the morning papers cannot be set up in the day time? And can’t men be hired to run the restaurants on Sunday? Or ought not the people who run the restaurants to have one day of rest in the week and enjoy the holidays as well as other folks? And what better day can it be than on the holy Sabbath day? This is the day set aside for the preachers to get in their work, and what are they going to work on if the women and children don’t have time to go to church? But I must stop. I could go on this way for a week, showing how unreasonable those Anarchists are, but I would tire you and — and —
-
-Oh, yes, some one will ask, if some folks are prevented from working on Sunday, why should not all be prevented? Well, if you can’t answer a simple question like that for yourself, I’m not going to answer it for you.
-
-**Joseph A. Labadie.**
-
-## To Justice.
-
-> Doff the thick veil that hides thy lovely visage,
->
-> Justice! — ’tis time — the veil which in thy childhood
->
-> Sages flung o’er thee — let us look upon thee
->
-> In thine own beauty.
-
-> Kind was the thought — the countenance of evil
->
-> Shouldst thou not see, for thou wert its condemner;
->
-> All the gold-piles of wealth-encumbered proud ones
->
-> Thee should not dazzle.
-
-> Doff the thick veil — hide thy bright eye no longer;
->
-> Crime is too bold — look on in sternest beauty;
->
-> See, for mankind are dragged to basest doings
->
-> By their own blindness.
-
-> Eyes sharp as thine are watching how thou boldest
->
-> High o’er thy head the scale; but listen, Goddess!
->
-> Didst thou not hear a piece of gold that tinkled
->
-> In thine own balance?
-
-> Didst thou not know thy sword had lost its brightness?
->
-> Trembled thy hand the while a mighty villain
->
-> Whispered, and threatened thee with wrath and vengeance?
->
-> Yes, thy hand trembled.
-
-> Didst thou not know that thou hadst been deluded
->
-> By the vain pomp of words — hadst lost the spirit,
->
-> Seeking the *letter*, of thine holiest canon?
->
-> Justice! unveil thee.
-
-> Off with the veil — behold, the heaven is cloudless,
->
-> And the sun mounts in unaccustomed glory.
->
-> See, all mankind are seeing — wilt thou only
->
-> Wear thine old blindness?
-
-*Francis Verseghi.*
-
-Continued from page 3.
 
 The commissary consulted his notes.
 
@@ -869,6 +709,162 @@ Jean tilted back and forth in his chair, still looking at her attentively.
 “There is no Monsieur or Madame about it,” said he. “I will return them to you only at that price.”
 
 To be continued.
+
+> “In abolishing rent and interest, the last vestiges of old-time slavery, the Revolution abolishes at one stroke the sword of the executioner, the seal of the magistrate, the club of the policeman, the gunge of the exciseman, the erasing-knife of the department clerk, all those insignia of Politics, which young Liberty grinds beneath her heel.” — Proudhon.
+
+***
+
+The appearance in the editorial column of articles over other signatures than the editor’s initial indicates that the editor approves their central purpose and general tenor, though he does not hold himself responsible for every phrase or word. But the appearance in other parts of the paper of articles by the same or other writers by no means indicates that he disapproves them in any respect, such disposition of them being governed largely by motives of convenience.
+
+***
+
+In consequence of an illness of the editor, from which he has not yet fully recovered, the present issue of Liberty contains little or nothing from his pen and is long delayed in its appearance. He hopes to be soon at his desk again, and to publish the following number more nearly on time.
+
+## Freedom and Development.
+
+A Denver correspondent of the “Workmen’s Advocate,” Henry Cohen, deals mechanical and compulsory Socialism a mortal blow in the following very brief communication:
+
+State Socialists are fond of quoting the following from Spencer’s “Ethics”: “The relation of structures are actually such that by the help of a central regulative system each organ is supplied with blood in proportion to the work it does.”
+
+The stomach, liver, brain, etc., did not have to elect this central regulative system in the body physical. It was a system of “cold, universal *laissez faire*,” as Carlyle would say. If the body physical has been able to develop under a free system to this highly advanced state, what reason have Socialists for believing that the body politic will not develop in the same way, if the same system of freedom would prevail?
+
+The editor of the “Advocate” attempts to reply:
+
+It is a revelation to hear that State Socialists are fond of quoting Spencer, although many do recognize an improvement in his “Ethics” over his “Social Statics.” The comparison of the unconscious organs of the human body with intelligent beings, however, is a dernier resort, although perhaps quite applicable in isolated cases. A part of the very liberty which our correspondent evidently craves is the intelligence requisite to creating or preparing conditions under which progress is made. It was by the exercise of intelligence that the Spartans, for instance, developed their physical excellence; and it was by the benumbing influence of *laissez faire* that the Romans became degraded. The highest physical development is attained through the highest applied intelligence.
+
+Now, the information of the able editor is very limited indeed if he is not even aware that in Gronlund’s “Coöperative Commonwealth” (a work recommended by Socialist journals as the best exposition of their creed) Spencer is called the father of constructive Socialism, and his analogy between a physical organism and society pronounced the basis of the new philosophy of human relations. In attributing the decay of Rome to the principle of individualism he shows as much acquaintance with history as he reveals of penetration in ascribing the present evils to a superabundance of personal liberty. With regard to the main question, nobody doubts that the highest development is attained through the highest applied intelligence; but society being simply an aggregation of individuals with separate individual minds, not a real entity possessing an intelligence of its own, the dispute is as to who shall determine what does and what does not tend to the elevation and progressive improvement of the body social. Each individual member of society having his own private conception not only of his personal happiness, but of the highest good of the social organism, the question naturally arises whether the individual ought not to be free to follow his inclinations and enlightened judgment. Should the principles of social existence be defined by the ballot-box and the brute force back of it, or shall we trust to the spontaneous sympathies and sober sense of men for the voluntary recognition of equal liberty and equity? To decide right by force may seem very convenient, but it is not philosophical, scientific, or even safe. The Anarchist, realizing that the interests of rational beings are identical, that the social instinct revolts against injustice and urges solidarity and impartiality, and that liberty invariably conduces to the cultivation of a sense of responsibility and self-discipline, does not hesitate to reject all authoritarian methods of securing the reign of justice and equality. The evolutionary philosophy and the policy of State Socialism can never be reconciled. A consistent evolutionist is an Anarchist, and a philosophical Anarchist is an evolutionist.
+
+**V\. Y\.**
+
+## Neither Life Nor Death.
+
+Only a newspaper item:
+
+Clarence Gore, eighteen years old, strong, and comfortably dressed, was arrested Saturday night for begging. He told Justice Patterson at the Jefferson market court this morning that he had arrived from Illinois on Thursday, couldn’t find work, and was without money. “No reason why you should beg,” said the justice. “Fined ten dollars.”
+
+As we know no other way of obtaining the means of subsistence than either work, begging, or stealing, and as a man deprived of the opportunity of work is declared by the sapient justice to still be without excuse for begging, it would seem that the solemn representative of law and order covertly recommends theft. Yet this is hardly possible; and doubtless, had this same man been arraigned for robbery, he would have received a very severe punishment. What, then, is to be done? What becomes of the right to life guaranteed by the Constitution? Evidently nothing is left to the modern victims of capitalistic exploitation and usurpation but to seek deliverance in death. The right to life having become a dead letter, an empty phrase, must we make use of the right to death? But no such right exists. Suicide is a crime, since the citizens belong, not to themselves, but to the final owner of all, the State. So it is our duty to live, though we are not allowed to do anything that would enable us to perform our duty. The question is no longer “To be or not to be?” but we are required to discover a state which would be neither being nor not-being. The *bourgeois* world has long been a stage for heart-rending tragedy; is it now developing into a farcical absurdity?
+
+**V\. Y\.**
+
+## Ricardo’s Theory of Rent.
+
+*To the Editor of Liberty:*
+
+The effort of Mr. Yarros in your issue of January 19 to establish “a better mutual understanding as to the meaning attached to the term Anarchism” brings us no nearer to this point, from the fact that the definition he gives is indefinite. No distinction is shown between social and political non-interference, both terms relating to the conduct of an association of persons. Nor can equity be urged as a distinguishing feature, since political interference may be, and frequently is, of an equitable character, hence in harmony with the law of equal freedom. Even the plea for the reign of free contract does not help the case, since the offer of rent for an exchange of unequal local advantages is a feature of free competition, and contracts resulting from such offers are condemned by the advocates of occupying land-ownership.
+
+In accepting my view of the law of equal liberty Mr. Yarros is placed in a predicament. He either must leave it to each individual to determine whether the acts of others infringe his liberty and to apply the remedy according to his judgment, no matter how much this judgment may be warped, or he must recognize some organization to which is delegated the power to restrain transgressors.
+
+The “humanitarian” method of bringing a criminal to terms by “withholding the abundant and inestimable benefits of citizenship” has from its brutality been abandoned by most communities. Next to torture, outlawing has been the most severe punishment. Since equal freedom can be secured only by agreement, the exclusion of any one from its benefits implies the withdrawal of all protection, without which personal safety is precarious and the right of ownership inconceivable. Then, who would not rather have a portion of his wealth confiscated than have the whole of it outlawed? Invasion under such circumstances is more humanitarian than complete alienation.
+
+Furthermore I must repeat that the “quantitative importance” has no bearing upon the question as to the attitude society should assume in relation to rent. A question of principle is here involved. Where an exclusive right to the use of land is recognized, an economic power, born of self-interest, and against which all social agreements are powerless, will prompt the offer of rent. “The problem society has to solve” consists, not in the suppression of this offer, but in its regulation. The question, therefore, asserts itself, shall this rent benefit the few, or shall it go to all those whose presence requires the use of inferior opportunities, making rent possible for better grades? The issue must be squarely met. Shall favoritism prevail, or shall the burdens as well as the benefits of association be equitably distributed?
+
+“Economic rent cannot be called a social wrong.” The wrong consists in the despotism that secures this rent to the few, whether they be the owners or the occupiers of superior opportunities.
+
+The supposition that the expense of collecting the rent exceeds the sum total of the rents to be collected can be met by the fact that collectors willingly undertake the work of collecting rent at commissions of even less than ten per cent.
+
+In assailing Ricardo’s teachings he condemns the truths promulgated as well as his errors. If nothing of a tangible nature has been offered by Ricardo, I fail to see how any one can “revolt against the absolute maxims” of that school. Can we conceive a more rational proposition than that the value of those things that are constantly reproduced will tend towards the cost of production, where production is continued under the least favorable conditions, and that those producing under more favorable conditions will be able to sell their products at a profit? The bitterness of Mr. Yarros towards Ricardo might subside, could he but see how successfully this law can be wielded against the modern theory of finance and capital profit.
+
+In order to reconcile “the signal contradiction and opposition between the logic of international free trade and the logic of inland taxation of rent” it must first be shown that there is such a contradiction. In my opinion the nationalization of rent will be the natural outcome of free competition under a social organization based upon the law of equal liberty.
+
+How can the desirable cost-principle of value be introduced, if, for illustration, the better wheat costs less to produce than the poorer? Should we shackle competition so that the superior must be sold at a lower price than the inferior? Of course not. Then a natural solution should rather be welcomed than repelled. If, under free competition, those who compete for the control of the chances to raise the better wheat (which, as premised, requires less labor to raise than the poorer) are willing to pay for the privilege, in the form of rent, an amount that will raise the cost of production practically to the market value, realizing the cost principle of value, why should we insist upon reserving this opportunity for the favored few, and not give it to those who are willing to pay the most for it?
+
+The maxims of the new school, in so far as they are directed against economic laws which are beyond human control, are conducive to social stability no more than the present belief in the reproductive powers of capital, and a proper understanding of and adherence to equity remains the only way enabling the establishment of a stable form of society.
+
+**Egoist.**
+
+## Egoist’s Errors.
+
+Of course I must believe Egoist when he states that my “effort” to advance the discussion resulted, so far as its effect upon him was concerned, in failure; but I assert that it is due to no fault of mine. My definition was as definite and clear as it is possible to give to a term covering such a broad and complex and intricate movement as Anarchism. With the average “intelligent reader,” the *raison d’être* of Anarchism is found in an impatience with a system burdened and loaded down with wrong and abuse and a desire, far more intense than philosophical, to reduce the whole to ashes in the space of twenty-four hours. He therefore takes it upon himself to reason with the deluded Anarchists about the impossibility, the uselessness, the undesirability, the risk, and the danger of such a sudden and thorough reconstitution of entire society. Heaven and earth are moved in the worthy endeavor to instil in our minds the common sense which is essential to one who in reform would remain on this side of the line between sober and rational progressives and abandoned Utopians or reckless fanatics. Everything has been tried,— argument, appeal, invective, satire, irony, ridicule,— for this end, and we are bound to say that, if nothing else, such perseverance and anxiety are highly gratifying as fresh evidence of the love and good-will with which the human heart overflows. But the trouble with the intelligent reader in that he exhausts his priceless energies in attacks upon shadows, and entreats us to cease and repent of that which we never began and professed. By turning his attention to himself he would, with one-tenth the strain, succeed in correcting his own erroneous impressions and so really contribute toward the possibility of an intelligent canvass of the issues involved in Anarchism.
+
+Egoist having manifested a decided inclination to rehearse the part of the aforesaid intelligent reader, I thought it advisable to explain in a general way just what our grounds and anticipations and aspirations are. It was chiefly my intention to make it clear that the evolutionary standpoint is the only one from which the scientific thinker may develop principles in opposition to authority and a reliance on liberty and voluntaryism. My distinction between political and social non-interference may not have been characterized by exemplary definiteness and precision, but these were not considered necessary in dealing with men not unfamiliar with the literature on subjects of political and social science. To readers of Mill and Spencer the vital difference between the passive and moral means which society employs and the direct brutal compulsion of government should be well known. Does not Egoist himself believe that social progress will be and mean in the future what it has in the past,— a gradual elimination of governmental violence and tyranny and a substitution therefor of the benign influences of persuasion, public opinion, and example? Does he not hope and expect that equity and freedom, which undoubtedly are not now altogether absent from our relations (else, pray, how could an evolutionist conceive of their existence hereafter?), will pervade and penetrate society more and more, while the elements of servility, dishonesty, and constraint will shrink to smaller and smaller proportions till they all but cease to exist? If he does not, progress is to him a myth; if he does, his objections to my definition of Anarchism are utterly and astonishingly forceless.
+
+That in accepting Egoist’s view of the law of equal freedom I am placing myself in no “predicament,” I trust will be conceded in the light of Mr. Tucker’s elucidation of the matter in his comments on Egoist’s last letter to him. It is only through his sharing the absurd misconception of the intelligent reader in regard to our view of association and cooperation that he supposed me so placed.
+
+After laying down general principles, I took up the particular question of economic rent and showed that a society resting on mutuality and liberty would guide itself in settling difficulties arising out of natural obstacles and inequalities exclusively by the magnitude and extent of the evil born of the latter. Egoist does not (and I may confidently add, cannot) sustain the contrary. Yes, “a question of principle is here involved,” the principle of non-interference. Shall men possessed of a deep and well-founded distrust of artificialism and officialism nevertheless hasten to avail themselves of the same whenever any slight inequality due to purely external physical causes disturbs the social ideal of perfect equality of opportunity? Or shall they let well alone in all instances not very seriously affecting social stability? This question of “shall” of course resolves itself into the one of “will” or “are likely,” and to me it seems absolutely indisputable that they would then, as now most sensible men do, prefer to suffer from known evils than to try unknown ones.
+
+Is Egoist aware that economic rent is not the same as monopoly rent, and that our discussion is entirely confined to the former? If he is, why does he seek to introduce the irrelevant fact of collectors’ readiness to undertake the collection of rent at a commission of ten per cent. or less? The present systems of landholding and finance can hardly, I think, be compared to the system contemplated by us, with occupation and personal use as the title to land and an abundance of capital. Besides, the supposition that the expense of collection might exceed the proceeds accruing from the rent I only made “for the sake of the argument.”
+
+Egoist surprises me when he claims that no contradiction has as yet been found between land taxation and free trade. I had thought that the contradiction was plainly brought out in the quotation from Mr. Kelly subjoined to my first article upon the matter in hand. The fact that we do not pay for commodities transported here from distant places exactly or even nearly the cost of their production by ourselves argues against any mechanical distribution of economic rent. Why should not a difference in productive capacity call to a difference in function, thus rendering free and untaxed exchange between close neighbors as mutually advantageous as such exchange between States and nations is admitted to be? I feel no bitterness toward the Ricardian economists, any more than to any other class of narrow *doctrinaires*, and, while I should be intellectually interested to learn how Ricardian economics “can be wielded against the modern theory of finance,” such comfort could not bribe me into altering my objective estimate of the scientific merits or practical importance of their speculations.
+
+All of Egoist’s perplexities and confused notions seem to me to spring from one source,— the mistaken view he has formed of political economy. Without, probably, endorsing the boastful utterance of John Law regarding the superior position of political economy among the sciences, and without following Bonamy Price in defining political economy as an industrial code of practical laws and suggestions, Egoist yet looks upon it as a science more or less exact. He insists upon full practical application of the deductions and conclusion of the “authorities.” In truth, as Bagehot admirably puts it, political economy deals with hypothetical men under hypothetical conditions, not with real living beings in their actual relations and surroundings. It is mischievous as well as puerile to rigorously regulate life by the abstractions of this “science.” Arnold Toynbee (who pronounced Ricardo’s doctrine a “huge intellectual imposture”) protested strongly against the thoughtless talk so freely indulged in not only by complacent *bourgeois* in justification of their greed and inhumanity but by pseudo-economists and learned defenders of capitalism, to the effect that the maxims and laws of political economy must be implicitly obeyed and followed without regard to non-economic motives. Even Mill would now and then mildly express a similar disapproval. Political economy as a hypothetical science is one thing; real economic relations are quite a different thing. The first unquestionably has its uses; but in life that which the economic standpoint ignores or dismisses as “disturbing causes” or simple “exceptions” often have greater weight in determining our actions than the considerations taken cognizance of in political economy. Abstractly, the Ricardian theory presents great attractions to the mind, but the perverse complications of life damage fearfully the beauty and symmetry and faultless grace of that logical air-castle. Now, as *laissez faire* is safer than interference, as there are always more substantial reasons and more positive grounds required for action than for inaction, for innovation than for conservation, and as in doubtful cases the old has more right to respect than the untried, it appears reasonable to conclude that, until the advocates of confiscation of rent advance more incontestable and direct evidence of the connection between social evils and a system of free landholding (in our sense), our policy towards them should be one of passive resistance.
+
+**V\. Yarros.**
+
+## Cranky Notions.
+
+“Governments are necessary evils. This necessity arises out of the selfishness and stupidity of mankind.” This is what Charles Nordhoff says in his “Politics for Young Americans.” Tom Paine and Jefferson said the same thing before him. It is the political creed of millions of men who call themselves democrats, and it is believed by millions more who really do not know what they are. It has got to be an axiom with that school that sees the evils of government and is either too near-sighted or too timid to be reasonable and consistent with itself. Is it true that governments are necessary evils? Can a thing be necessary and evil at the same time? A thing that is necessary is absolutely essential. Food and air and shelter are things necessary for the existence of animal life. They cannot be dispensed with. It would be at least a stretch of imagination to say they were evils. And yet why not call these evils as well as any other necessary thing? Their necessity arises from our wants, just the same as any other necessity arises, and anything that satisfies wants can hardly be called an evil. It seems to me that the social democrats are more logical than Mr. Nordhoff and his kind. They hold that government is a necessary good. It strikes me that, if a thing be necessary, it must be good; and, *per contra*, evil things are not necessary. That government is an evil Mr. Nordhoff et als have clearly shown, and to be consistent they must declare against government, must declare for Anarchy. From this conclusion there seems to me no escape.
+
+### \* \* \*
+
+“But there must be taxes raised for public improvements, and there must be compulsion to make those pay who will not pay otherwise. How in the world would we build sewers without doing this?” This is what was put to me the other day, and it is put repeatedly as a stunner to the Anarchist. But are sewers necessary? Under freedom would people crowd together on twenty-feet lots, as they do in Cincinnati, on which possibly live half a dozen people? Think of it! half a dozen human beings living on a piece of land twenty feet wide by possibly eighty feet long! And they may be even thicker than that in New York, Chicago, and other cities. It seems incredible that under Anarchy such a condition could exist. The rational view seems to me that each family would have elbow-room were there no restrictions. A half an acre or so is not too much for a family merely for living purposes, and few families but what like to raise flowers or vegetables of some sort. Are sewers necessary where we are not crowded together like cattle in a car? The refuse that now runs through the sewers into the lakes and oceans is what is needed on the land to keep it productive, and how long can the land stand it to be drained of its productive power? The matter that accumulates around an ordinary household would not become offensive or dangerous, were the people not crowded so closely together. On the contrary, it would be the very means of enriching the soil and beautifying the home. Victor Hugo, in “Les Misérables,” says that Paris casts twenty million francs annually into the sea by means of its sewers, and estimates that France alone pours every year into the Atlantic a sum equal to five hundred millions of francs. Liebig says that the Campagna of Rome was ruined by the Roman drains. And we are told that the soil in China is still as youthful as in the days of Abraham, and Chinese wheat yields one hundred and twenty fold the sowing because drains and sewers are rare in China.
+
+### \* \* \*
+
+Just think of it! *only* 17,000 bills introduced in the last session of the United States congress! And the most painful thing about it is that only about 1,400 became laws. How our guardians at Washington can imagine we can get along without the balance of the 17,000 I really am at a loss to know. Goodness gracious! when they know that some people get rich by having laws passed in their interests, how could they overlook the importance of passing a bill for every individual in the country, and then, don’t you see, every one of us would be rich. This neglect on their part is certainly to be deplored; and I am inclined to think inexcusable. As it is now, I with others have to work in a badly ventilated room, where one either suffers from foul air and heat or pains caused by draughts of cold air. The industrial conditions that compel us workpeople to stand these things unfavorable to health and comfort are the result of laws, of course, but can’t our law manufacturers do as much as the man did who went to mill on a donkey and equalized the burden on the donkey’s back by putting the wheat in one end of the bag and stones in the other? What if we do get the end with the stones in? Isn’t the equalization of burdens a good thing? And can’t burdens be equalized by laws? If they can’t, what’s the use of having these law shops, pouring out to us the products of the hard-worked and poorly-paid employes with which they are filled? I imagine some fire-eating Anarchist will here try to interrupt me by the question as to who the donkey is in this case; but I don’t propose to be interrupted, and even if he does get in his impertinence, increased by copious draughts of vile whisky (Anarchists always drink vile whisky copiously), the only answer I’ve got for him is that it is none of his business. If the newspapers tell the truth (and I never heard one tell a lie), these lazy Anarchists don’t have any business, and therefore nothing is their business. They’re nothing but a lot of kickers, anyway. No matter where you find an Anarchist, he’s always got his heels flying. (Of course, you will understand this is poetic license. We’ve got to have a license for everything.) Now, over in France, a law was passed recently for the benefit of women and children. It prevented them from working nights in shops and factories, and also put a stop to their working Sundays and legal holidays. You know, France is honeycombed with these wretched Anarchists, and these women and children are some of them. And, of course, they are kicking about this law. Those who set type on morning newspapers, work in restaurants, in the great markets in Paris, and in other occupations, say it will throw them out of work, and that the government will not furnish them food, clothes, and shelter. Just as though it was the government’s business to furnish these things to people out of work! The evil of overwork is plain to every thinking person, and those who persist in it should be stopped by law. But, let me see; how is this? I am told that Anarchists don’t work. Oh, I see how it is. They are so contrary that, if they are not allowed to overwork themselves, they won’t work at all. Now, what is the reason the morning papers cannot be set up in the day time? And can’t men be hired to run the restaurants on Sunday? Or ought not the people who run the restaurants to have one day of rest in the week and enjoy the holidays as well as other folks? And what better day can it be than on the holy Sabbath day? This is the day set aside for the preachers to get in their work, and what are they going to work on if the women and children don’t have time to go to church? But I must stop. I could go on this way for a week, showing how unreasonable those Anarchists are, but I would tire you and — and —
+
+Oh, yes, some one will ask, if some folks are prevented from working on Sunday, why should not all be prevented? Well, if you can’t answer a simple question like that for yourself, I’m not going to answer it for you.
+
+**Joseph A. Labadie.**
+
+## To Justice.
+
+> Doff the thick veil that hides thy lovely visage,
+>
+> Justice! — ’tis time — the veil which in thy childhood
+>
+> Sages flung o’er thee — let us look upon thee
+>
+> In thine own beauty.
+
+> Kind was the thought — the countenance of evil
+>
+> Shouldst thou not see, for thou wert its condemner;
+>
+> All the gold-piles of wealth-encumbered proud ones
+>
+> Thee should not dazzle.
+
+> Doff the thick veil — hide thy bright eye no longer;
+>
+> Crime is too bold — look on in sternest beauty;
+>
+> See, for mankind are dragged to basest doings
+>
+> By their own blindness.
+
+> Eyes sharp as thine are watching how thou boldest
+>
+> High o’er thy head the scale; but listen, Goddess!
+>
+> Didst thou not hear a piece of gold that tinkled
+>
+> In thine own balance?
+
+> Didst thou not know thy sword had lost its brightness?
+>
+> Trembled thy hand the while a mighty villain
+>
+> Whispered, and threatened thee with wrath and vengeance?
+>
+> Yes, thy hand trembled.
+
+> Didst thou not know that thou hadst been deluded
+>
+> By the vain pomp of words — hadst lost the spirit,
+>
+> Seeking the *letter*, of thine holiest canon?
+>
+> Justice! unveil thee.
+
+> Off with the veil — behold, the heaven is cloudless,
+>
+> And the sun mounts in unaccustomed glory.
+>
+> See, all mankind are seeing — wilt thou only
+>
+> Wear thine old blindness?
+
+*Francis Verseghi.*
 
 ## Liberty and Authority.
 
