@@ -432,7 +432,7 @@ The old man remained silent a moment and then resumed:
 
 To be continued.
 
-﻿## Free Political Institutions:
+## Free Political Institutions:
 
 ### Their Nature, Essence, Maintenance.
 
