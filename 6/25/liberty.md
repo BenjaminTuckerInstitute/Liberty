@@ -1,4 +1,4 @@
-﻿## [Unedited]
+## [Unedited]
 
 > “For always in thine eyes, O Liberty!
 >
