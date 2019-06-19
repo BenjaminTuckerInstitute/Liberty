@@ -350,7 +350,7 @@ The Washington Base Ball Club determined tonight not to contend with the distric
 
 **Lowell**, June 10. The vestry and wardens of St. Anne's Church sent to the city council tonight a remonstrance against the taking of the whole or any part of the land on which the orphanage connected with that church is situated for a new high school. The committee on education submitted a report, under suspension of the rules, designating the land in question as a proper site for a high school, and recommended that measures be taken for seizing under the law.
 
-**Milford**, June 8. What promises to open quite a scandal here was instituted last evening in the arrest by Deputy 8heriff Edwards and Constable George F. Birch of William Wilson, book-keeper for the large trucking and teaming firm of Johnston & Co., Milford, for alleged seduction of a Milford girl under the statutory age of consent.
+**Milford**, June 8. What promises to open quite a scandal here was instituted last evening in the arrest by Deputy Sheriff Edwards and Constable George F. Birch of William Wilson, book-keeper for the large trucking and teaming firm of Johnston & Co., Milford, for alleged seduction of a Milford girl under the statutory age of consent.
 
 **Dublin**, June 10. Mr. Tully, editor of the Roscommon “Herald,” has been convicted under the crimes act of publishing an article denouncing land-grabbers, and has been sentenced to three months' imprisonment without bard labor.
 
@@ -362,7 +362,7 @@ The Washington Base Ball Club determined tonight not to contend with the distric
 
 **Spandau**, June 15. Several thousand workmen employed in the royal Prussian factories refuse to pay the taxes that have been levied upon them on the plea that, being now working eight hours instead of 14, as formerly, they are unable to make the same wages, and consequently a reduction of taxes is absolutely necessary, otherwise they will be unable to live.
 
-*Halifax, N. S.**, June 7. Pickford & Black, agents for the steamer Harlawa, today received a telegram from Capt. Farquhar, stating that he had arrivtd at Bay St. George, N. F., and that the customs authorise: had refused to allow him to land his cargo for that place. The reason given was that the people refused to pay any customs duties on goods coming into the country. The Harlawa had to proceed on her voyage without having landed any of her freight for the Bay St. George people.
+**Halifax, N. S.**, June 7. Pickford & Black, agents for the steamer Harlawa, today received a telegram from Capt. Farquhar, stating that he had arrivtd at Bay St. George, N. F., and that the customs authorise: had refused to allow him to land his cargo for that place. The reason given was that the people refused to pay any customs duties on goods coming into the country. The Harlawa had to proceed on her voyage without having landed any of her freight for the Bay St. George people.
 
 “L” writes in the Boston “Transcript”:
 
