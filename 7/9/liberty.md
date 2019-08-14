@@ -240,17 +240,17 @@ The appearance in the editorial column of articles over other signatures than th
 
 I have said in Liberty that I know no way of helping Moses Harman, editor of “Lucifer,” out of prison. I still know none. But there is a way of making his burden lighter, and — what is more important — of foiling his enemies in their real purpose, the suppression of his paper. That way is to keep his paper alive till he is free. In such an effort any Anarchist may well take part, whatever his opinion may be of the paper itself. I certainly hold it in very light esteem. But it is a Liberal paper, and that is enough. The foes of liberty want to suppress it, and if they fail, it will afford them little satisfaction to have imprisoned Moses Harman. Let us then keep “Lucifer” alive. All funds received for that purpose will be acknowledged in this column and forwarded to the office of “Lucifer.”
 
-Benj. R. Tucker..................................$10.00
+**Benj. R. Tucker**. . . . . . . . . $10.00
 
-John Orth, Boston . .  1.00
+**Jour Orth**, Boston . . . . . . . . 1.00
 
-C. Schulenburg, Detroit........................... 3.00
+**C. Schulenburg**, Detroit. . . . . . . 3.00
 
-A. H. Simpson, Boston............................. 2.00
+**A\. H\. Simpson**, Boston . . . . . . . 2.00
 
-Mrs. M. B. Groves, Washington, D. C............ 4.00
+**Mrs. M. B. Groves**, Washington, D. C. . . . . 4.00
 
-Robert Reitzel, Detroit........................... 1.00
+**Robert Reitzel**, Detroit . . . . . . . 1.00
 
 ## A Lesson in Tactics.
 
