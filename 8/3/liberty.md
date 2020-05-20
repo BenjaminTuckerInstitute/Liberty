@@ -88,7 +88,7 @@ In an article justifying the prohibition of the liquor traffic, the Atlantic (Io
 
 #### **Pilgrim.**
 
-Poor man!
+> Poor man!
 
 #### **Italian.**
 
