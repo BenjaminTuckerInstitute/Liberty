@@ -218,7 +218,7 @@ The Year-Book of the French Press for 1891 contains a preface contributed by Hen
 
 A few years ago, when some dispute arose between the questors of the Chamber and the representatives of the Press (I believe it was a question of some door to be opened or condemned), the discussion became so bitter that very disagreeable things were said on both sides.
 
-“Ah!” cried a deputy one day, who was not a journalist, 11 the Press then is a fourth power of the State?”
+“Ah!” cried a deputy one day, who was not a journalist, “the Press then is a fourth power of the State?”
 
 “You are mistaken, Monsieur,” I answered him; “it is the first.”
 
