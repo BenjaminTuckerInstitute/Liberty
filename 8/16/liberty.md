@@ -76,7 +76,7 @@ I regulate my life and my relations with the outside world in accordance with my
 
 My sole object in life is to be happy, — I seek to avoid all pain and to gratify all my normal desires.
 
-I cannot he happy unless I feel myself perfectly safe and secure in my possessions.
+I cannot be happy unless I feel myself perfectly safe and secure in my possessions.
 
 I can never be safe and free from fear of disturbance or injury until those around me are able to gratify all their normal desires, and they can never be completely happy without security.
 
