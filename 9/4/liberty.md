@@ -113,13 +113,13 @@ We, the undersigned, hereby agree, in case Benj. R. Tucker shall decide to publi
 <table>
   <tbody>
     <tr>
-      <td><strong>G\. A\. F\. de Lespinasse</strong>, Orange City, Iowa,</td><td>100 copies.</td>
+      <td><strong>G. A. F. de Lespinasse</strong>, Orange City, Iowa,</td><td>100 copies.</td>
     </tr>
     <tr>
       <td><strong>John Beverley Robinson</strong>, New York,</td><td>10 „</td>
     </tr>
     <tr>
-      <td><strong>H\. Rabinovitch</strong>, New York,</td><td>9 „</td>
+      <td><strong>H. Rabinovitch</strong>, New York,</td><td>9 „</td>
     </tr>
   </tbody>
 </table>
