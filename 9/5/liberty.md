@@ -154,73 +154,73 @@ We, the undersigned, hereby agree, in case Benj. R. Tucker shall decide to publi
       <td><strong>G\. A\. F\. de Lespinasse</strong>, Orange City, Iowa,</td><td>100 copies.</td>
     </tr>
     <tr>
-      <td><strong>John Beverley Robinson</strong>, New York,</td><td>10 „</td>
+      <td><strong>John Beverley Robinson</strong>, New York,</td><td>10 “</td>
     </tr>
     <tr>
-      <td><strong>H\. Rabinovitch</strong>, New York,</td><td>2 „</td>
+      <td><strong>H\. Rabinovitch</strong>, New York,</td><td>2 “</td>
     </tr>
     <tr>
-      <td><strong>J. T. Small</strong>, Provincetown, Mass.,</td><td>25 „</td>
+      <td><strong>J. T. Small</strong>, Provincetown, Mass.,</td><td>25 “</td>
     </tr>
     <tr>
-      <td><strong>Wm. H. Sylvester</strong>, Newtonville, Maas.,</td><td>10</td>
+      <td><strong>Wm. H. Sylvester</strong>, Newtonville, Maas.,</td><td>10 “</td>
     </tr>
     <tr>
-      <td><strong>Otto Schumm</strong>, Blytheboume, Long Island,</td><td>1</td>
+      <td><strong>Otto Schumm</strong>, Blytheboume, Long Island,</td><td>1 “</td>
     </tr>
     <tr>
-      <td><strong>Wm. Bailie</strong>, Chelsea, Mass.,</td><td>3</td>
+      <td><strong>Wm. Bailie</strong>, Chelsea, Mass.,</td><td>3 “</td>
     </tr>
     <tr>
-      <td><strong>T. P. Perkins</strong>, Lynn, Mass.,</td><td>2</td>
+      <td><strong>T. P. Perkins</strong>, Lynn, Mass.,</td><td>2 “</td>
     </tr>
     <tr>
-      <td><strong>O. P. Loomis</strong>, Brooklyn, N. Y.,</td><td>2</td>
+      <td><strong>O. P. Loomis</strong>, Brooklyn, N. Y.,</td><td>2 “</td>
     </tr>
     <tr>
-      <td><strong>Chas. Lloyd Serrill</strong>, Philadelphia, Pa.,</td><td>15</td>
+      <td><strong>Chas. Lloyd Serrill</strong>, Philadelphia, Pa.,</td><td>15 “</td>
     </tr>
     <tr>
-      <td><strong>Nellie Carlin</strong>, Chicago, Ill.,</td><td>5</td>
+      <td><strong>Nellie Carlin</strong>, Chicago, Ill.,</td><td>5 “</td>
     </tr>
     <tr>
-      <td><strong>P. S. Carlin</strong>, Milwaukee, Win.,</td><td>5</td>
+      <td><strong>P. S. Carlin</strong>, Milwaukee, Win.,</td><td>5 “</td>
     </tr>
     <tr>
-      <td><strong>T. J. Carlin</strong>, Milwaukee, Wis.,</td><td>5</td>
+      <td><strong>T. J. Carlin</strong>, Milwaukee, Wis.,</td><td>5 “</td>
     </tr>
     <tr>
-      <td><strong>Rose. A. Murray</strong>, Bennington, Vt.,</td><td>1</td>
+      <td><strong>Rose. A. Murray</strong>, Bennington, Vt.,</td><td>1 “</td>
     </tr>
     <tr>
-      <td><strong>J. B. Barnhill</strong>, Flora, Ill.,</td><td>5</td>
+      <td><strong>J. B. Barnhill</strong>, Flora, Ill.,</td><td>5 “</td>
     </tr>
     <tr>
-      <td><strong>Sarah A. Rohrer</strong>, Loudonville, O.,v1</td>
+      <td><strong>Sarah A. Rohrer</strong>, Loudonville, O.,</td><td>1 “</td>
     </tr>
     <tr>
-      <td><strong>A. H. Simpson</strong>, Boston, Mass.,</td><td>5</td>
+      <td><strong>A. H. Simpson</strong>, Boston, Mass.,</td><td>5 “</td>
     </tr>
     <tr>
-      <td><strong>F. B. Rowell</strong>, Lynn, Mass.,</td><td>1</td>
+      <td><strong>F. B. Rowell</strong>, Lynn, Mass.,</td><td>1 “</td>
     </tr>
     <tr>
-      <td><strong>Thomas Earle White</strong>, Philadelphia, Pa.,</td><td>10</td>
+      <td><strong>Thomas Earle White</strong>, Philadelphia, Pa.,</td><td>10 “</td>
     </tr>
     <tr>
-      <td><strong>Miriam Sunrise Nicol</strong>, New York,</td><td>1</td>
+      <td><strong>Miriam Sunrise Nicol</strong>, New York,</td><td>1 “</td>
     </tr>
     <tr>
-      <td><strong>Miriam Daniell</strong>, New York,</td><td>1</td>
+      <td><strong>Miriam Daniell</strong>, New York,</td><td>1 “</td>
     </tr>
     <tr>
-      <td><strong>Robert Allan Nicol</strong>, New York,</td><td>1</td>
+      <td><strong>Robert Allan Nicol</strong>, New York,</td><td>1 “</td>
     </tr>
     <tr>
-      <td><strong>Helena Born</strong>, New York,</td><td>1</td>
+      <td><strong>Helena Born</strong>, New York,</td><td>1 “</td>
     </tr>
     <tr>
-      <td><strong>C. F. Spurgeon</strong>, Kirkville, Iowa,</td><td>1</td>
+      <td><strong>C. F. Spurgeon</strong>, Kirkville, Iowa,</td><td>1 “</td>
     </tr>
   </tbody>
 </table>
