@@ -30,7 +30,7 @@ The appearance in the editorial column of articles over other signatures than th
 
 ## Ambrose Bierce on Anarchism.
 
-Ambrose Bierce, poet, story-writer, critic, and free=lance journalist, has been wrestling with the question of Anarchism. Mr. Bierce is a vigorous writer, but he does not seem to appreciate the fact that vigorous writing is properly but a means to an end, and often sacrifices truth, propriety, sense, and substance in his effort to express himself in vigorous language. Mr. Bierce is doubtless a sincere hater of humbug, hypocrisy, and philistinism, and the best evidence of the fact that a good deal of his writing is wholesome and sound is the pleasure which Anarchists and radicals take in reading it. It is not certain, however, — it is very improbable, in fact, — that Mr. Bierce is fortunate enough to possess clear and scientific ideas on fundamental social, economic, or political questions. Right feeling is very important, but without right thinking the best man is liable to be betrayed into a vicious, reactionary attitude in matters where instinct and feeling are inadequate as guides. In dealing with such a problem as Anarchism, the unscientific writer is laboring under such difficulties that it would be cruel to subject him to rash criticism for any blunder or injustice resulting from the attempt.
+Ambrose Bierce, poet, story-writer, critic, and free-lance journalist, has been wrestling with the question of Anarchism. Mr. Bierce is a vigorous writer, but he does not seem to appreciate the fact that vigorous writing is properly but a means to an end, and often sacrifices truth, propriety, sense, and substance in his effort to express himself in vigorous language. Mr. Bierce is doubtless a sincere hater of humbug, hypocrisy, and philistinism, and the best evidence of the fact that a good deal of his writing is wholesome and sound is the pleasure which Anarchists and radicals take in reading it. It is not certain, however, — it is very improbable, in fact, — that Mr. Bierce is fortunate enough to possess clear and scientific ideas on fundamental social, economic, or political questions. Right feeling is very important, but without right thinking the best man is liable to be betrayed into a vicious, reactionary attitude in matters where instinct and feeling are inadequate as guides. In dealing with such a problem as Anarchism, the unscientific writer is laboring under such difficulties that it would be cruel to subject him to rash criticism for any blunder or injustice resulting from the attempt.
 
 Recently, it seems, a San Francisco Anarchist sent Mr. Bierce a copy of “Instead of a Book” with the view of helping him to a better understanding of the question to the solution of which he had been unsuccessfully trying to contribute something. Mr. Bierce acknowledged the kindness in print (in his own department in the San Francisco “Examiner”) as follows:
 
@@ -54,7 +54,7 @@ One word concerning Mr. Bierce’s treatment of the bomb-throwers, for I am not 
 
 “Do you think liberty is good for everybody?” said a thoughtful woman to me; “take the many instances of unbridled power, the Roman emperors, for example; surely they had freedom; was it well that they should?”
 
-So people question before the complete notion of liberty fills their minds. The burglar, is be not free? The wife-beater, is he not free?
+So people question before the complete notion of liberty fills their minds. The burglar, is he not free? The wife-beater, is he not free?
 
 But how about the other people? we ask in reply. When the Roman emperors ruled, they may have been free, but how about the people whom they ruled, were they free? So the burglar may be free, but those whom he robs surely are coerced. And the wife-beater, he too may be free to beat his wife, by virtue of his physical strength, but is she free?
 
@@ -356,7 +356,7 @@ This speaks eloquently enough for itself, but a correspondent in South Africa ha
 
 The town council of Boonaboro, Md., suppressed egg picking for keeps on Easter, on the ground that egg picking is one of the entrances to the path that leads down to a gambler’s grave.
 
-[Login would seem to demand the suppression of egg-laying altogether. This is the only effectual way to eliminate temptation. Prevention is the word.]
+[Logic would seem to demand the suppression of egg-laying altogether. This is the only effectual way to eliminate temptation. Prevention is the word.]
 
 ### Winking a Crime.
 
@@ -562,7 +562,7 @@ As land monopoly is the cause of rent, patent monopolies and special privileges 
 
 ### Resolutions.
 
-(1.) As all generations of men have an inalienable right of free and gratuitous acmes to land to the extent of their individual needs, economically used, it is obvious that land monopoly is a great crime against the equal freedom of man. This universal wrong can be righted only in two ways, viz., either by a voluntary relinquishment of monopolized vacant land, or by a general refusal to pay rent when it exceeds the wear and tear of property used by the tenant. We therefore demand the repeal of all laws for the collection of rents created under duress.
+(1.) As all generations of men have an inalienable right of free and gratuitous access to land to the extent of their individual needs, economically used, it is obvious that land monopoly is a great crime against the equal freedom of man. This universal wrong can be righted only in two ways, viz., either by a voluntary relinquishment of monopolized vacant land, or by a general refusal to pay rent when it exceeds the wear and tear of property used by the tenant. We therefore demand the repeal of all laws for the collection of rents created under duress.
 
 (2.) As patents and special privileges are the basis of all manufacturing and commercial monopolies, and necessarily thwart legitimate competition, which is the only economic force that can reduce products and services to cost and produce justice in commerce, we therefore demand that in the future there shall be no patents or special privileges granted by law.
 
