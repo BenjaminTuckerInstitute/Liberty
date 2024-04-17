@@ -150,7 +150,7 @@ Is not a mother and child the very ideal of pure motherhood? Is she to be partic
 
 Common sense forbid!
 
-But whether you wish it or not, whether you approve of it or not, goon, even sooner than it would appear possible, *ça ira*, that will come.
+But whether you wish it or not, whether you approve of it or not, soon, even sooner than it would appear possible, *ça ira*, that will come.
 
 **John Beverley Robinson.**
 
