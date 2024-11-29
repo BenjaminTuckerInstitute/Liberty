@@ -312,7 +312,7 @@ It is thought that the cost of keeping up the two gangs, which in the last few d
 
 [When those political infants, the women, get the franchise in Georgia, they will be forced to learn, not only to walk, but to slug.]
 
-## LOCKED UP FOR ASKING QUESTIONS.
+LOCKED UP FOR ASKING QUESTIONS.
 
 [New York Sun.]
 
@@ -362,7 +362,7 @@ A RULE THAT CRIPPLES THE RULER.
 
 [The result of this of course will be that “illegitimate” publications, instead of spreading their distribution over the whole year as was their habit before the restriction was put in force, will concentrate as much of it as possible into the period when the restriction is suspended, — that is, the Christmas season, — and will thus put a crushing burden upon the postal service at the very time when the ordinary rush of holiday business is already taxing it beyond its capacity. Bastard periodicals like Harper & Brothers’ “Franklin Square Library” and “Printers’ Ink” must be smothered, to the end that legitimate periodicals like the “Police News” and the “Daily Sewer” may be carried free, even if the people do not get their Christmas presents before the Fourth of July.]
 
-THE EXTREME LEF**T\.**
+THE EXTREME LEFT.
 
 [New York Sun.]
 
