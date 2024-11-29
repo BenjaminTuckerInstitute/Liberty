@@ -88,7 +88,7 @@ The spectacle of Debs in jail will be an eye-opener to thousands. **T\.**
 
 *To the Editor of Liberty:*
 
-For once the editor of Liberty is caught napping. In the December I “Picket Duty,” you say:
+For once the editor of Liberty is caught napping. In the December 1 “Picket Duty,” you say:
 
 The sudden abolition of custom houses, in advance of the abolition of money monopoly, would work harm by depriving the country of the use of that portion of the circulating medium which would have to be sent abroad to balance the excess of imports over exports.
 
