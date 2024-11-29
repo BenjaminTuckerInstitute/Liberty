@@ -228,7 +228,7 @@ Diogenes once attended a congress of titled and wealthy ladies who facetiously t
 
 *Teacher.* — Tommy, did you find out anything about the origin of the dollar mark?
 
-*Tommy.* — I asked paw about it, and lie said the straight lines stood for the pillars of society, and the crooked one for the way they got their money.
+*Tommy.* — I asked paw about it, and he said the straight lines stood for the pillars of society, and the crooked one for the way they got their money.
 
 ## Pointers for Comstock.
 
